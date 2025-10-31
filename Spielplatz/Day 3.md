@@ -65,4 +65,5 @@
 - Backlog refinement, vision work, and estimation benefit from a consistent facilitator who can adapt techniques to team needs.
 - Include stakeholders and developers in conversations, so ownership and understanding are shared, not imposed.
 
+
 ---
