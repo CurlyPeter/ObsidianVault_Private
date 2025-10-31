@@ -7,6 +7,7 @@
 - Be prepared to iterate across formats (e.g., vision board, vision box, press release) to maintain alignment.
 - Beware misinterpretations (e.g., oil tanker vs speedboat analogy) and reinforce the intended meaning through repeated沟通.
 - Involve a mix of stakeholders and team members to deepen understanding and buy-in.
+- 
 
 ---
 # Product Backlog Refinement Fundamentals

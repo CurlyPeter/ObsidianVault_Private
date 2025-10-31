@@ -1,0 +1,21 @@
+{
+  "permissions": {
+    "allow": [
+      "mcp__obsidian-mcp-server__obsidian_read_note",
+      "mcp__google-workspace-peter__search_gmail_messages",
+      "mcp__google-workspace-peter__search_drive_files",
+      "mcp__google-workspace-peter__get_gmail_threads_content_batch",
+      "mcp__google-workspace-mail__get_gmail_threads_content_batch",
+      "mcp__google-workspace-peter__list_drive_items",
+      "mcp__google-workspace-peter__get_drive_file_content",
+      "mcp__obsidian-mcp-server__obsidian_update_note",
+      "mcp__google-workspace-peter__get_gmail_thread_content",
+      "mcp__obsidian-mcp-server__obsidian_search_replace",
+      "WebSearch",
+      "WebFetch(domain:de.linkedin.com)",
+      "WebFetch(domain:www.linkedin.com)"
+    ],
+    "deny": [],
+    "ask": []
+  }
+}
