@@ -1,0 +1,1 @@
+[**The Copernican Lecture -- Oded Galor**](https://www.youtube.com/watch?v=u_ZXQoH2k7k&feature=share)

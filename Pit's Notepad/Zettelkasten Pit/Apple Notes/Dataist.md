@@ -1,0 +1,10 @@
+1. Increasing the number of processors. A city of 100,000 people has more computing power than a village of 1,000 people. 2. Increasing the variety of processors. Different processors may use diverse ways to calculate and analyse data. Using several kinds of processors in a single system may therefore increase its dynamism and creativity. A conversation between a peasant, a priest and a physician may produce novel ideas that would never emerge from a conversation between three hunter-gatherers. 3. Increasing the number of connections between processors. There is little point in increasing the mere number and variety of processors if they are poorly connected to each other. A trade network linking ten cities is likely to result in many more economic, technological and social innovations than ten isolated cities. 4. Increasing the freedom of movement along existing connections. Connecting processors is hardly useful if data cannot flow freely. Just building roads between ten cities won’t be very useful if they are plagued by robbers, or if some autocratic despot doesn’t allow merchants and travellers to move as they wish.
+[**Homo Deus: A Brief History of Tomorrow (English Edition)**](http://amzn.eu/1d4mxj1)
+Thanks to writing and money, the gravitational field of human cooperation finally overpowered the centrifugal forces.
+[**Homo Deus: A Brief History of Tomorrow (English Edition)**](http://amzn.eu/gT5XmXz)
+Dataists would say that its output will be the creation of a new and even more efficient data-processing system, called the Internet-of-All-Things. Once this mission is accomplished, Homo sapiens will vanish.
+[**Homo Deus: A Brief History of Tomorrow (English Edition)**](http://amzn.eu/6OFyXwn)
+stirring ideals of human liberty, human equality and human fraternity.
+[**Homo Deus: A Brief History of Tomorrow (English Edition)**](http://amzn.eu/iUimjur)
+We mustn’t confuse freedom of information with the old liberal ideal of freedom of expression.
+[**Homo Deus: A Brief History of Tomorrow (English Edition)**](http://amzn.eu/8SbUg05)

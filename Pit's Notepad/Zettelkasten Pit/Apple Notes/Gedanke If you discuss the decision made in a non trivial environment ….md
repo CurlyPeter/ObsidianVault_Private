@@ -1,0 +1,1 @@
+Gedanke: If you discuss the decision made in a non trivial environment at an earlier point in time A, the conclusion at B can only be, that the decision was poor, because at B you have more data.

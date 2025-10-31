@@ -1,0 +1,1 @@
+Grauwechsel der Paragrafen beeinflussen können, so dass zB ein Bild auf weißem Hintergrund ist. zB Scrum Flow. Oder damit ein Text über mehrer Paragraphen auch optisch zusammengehört.

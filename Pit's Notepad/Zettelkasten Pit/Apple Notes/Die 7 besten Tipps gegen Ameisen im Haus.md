@@ -1,0 +1,1 @@
+[**Die 7 besten Tipps gegen Ameisen im Haus**](http://www.heimhelden.de/tipps-gegen-ameisen)

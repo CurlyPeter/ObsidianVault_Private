@@ -1,0 +1,1 @@
+A Rugby Enterprise is not a Scrum Enterprise, but it is fostering the potential of Scrum Teams (and Large Scale Scrum Teams).

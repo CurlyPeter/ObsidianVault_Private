@@ -1,0 +1,1 @@
+![](VG%20NO%208.Änd%20FNP%20Entwurf.pdf)

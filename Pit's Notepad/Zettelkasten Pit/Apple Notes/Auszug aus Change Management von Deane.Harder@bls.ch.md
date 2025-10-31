@@ -1,0 +1,1 @@
+![](Auszug%20aus%20Change%20Management.ppt)

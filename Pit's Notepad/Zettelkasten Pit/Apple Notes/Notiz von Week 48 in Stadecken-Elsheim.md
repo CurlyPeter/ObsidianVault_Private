@@ -1,0 +1,1 @@
+<span style="color:#000ff;">Mehr Geld wirkt wir ein verlängerter Hebel. Es kann schlechtes zu noch schlechterem, gutes zu noch besserem, böses zu abgrundtief bösen und prilliantes zu einem Wunder verstärken. Mittelmäßiges bleibt aber mittelmäßig, egal wie viel Geld man reinpumpt. Pit</span>

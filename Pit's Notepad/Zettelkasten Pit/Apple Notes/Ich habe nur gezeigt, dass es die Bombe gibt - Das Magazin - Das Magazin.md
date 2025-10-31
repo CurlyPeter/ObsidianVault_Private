@@ -1,0 +1,1 @@
+[**Tages-Anzeiger**](https://www.dasmagazin.ch/2016/12/03/ich-habe-nur-gezeigt-dass-es-die-bombe-gibt/)

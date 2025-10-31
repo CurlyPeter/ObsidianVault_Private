@@ -1,0 +1,1 @@
+5 Schläuche - 16l / min

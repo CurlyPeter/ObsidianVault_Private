@@ -1,0 +1,1 @@
+![](Pasted%20Graphic.tiff)

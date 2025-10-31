@@ -1,0 +1,1 @@
+[**366 FOX Lounge Sessel – Kollektion Tweed (verschiedene Farben)**](https://www.stilconceptstore.de/shop/366-fox-lounge-sessel-kollektion-tweed/)

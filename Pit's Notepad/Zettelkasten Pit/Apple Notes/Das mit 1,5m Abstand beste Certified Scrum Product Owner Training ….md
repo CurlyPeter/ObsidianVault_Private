@@ -1,0 +1,1 @@
+# Ein großes Dankeschön an die Teilnehmer für den disziplinierten Umgang mit der gegebenen Situation und die kreative Mitarbeit. Eure Produkt-Idee muss unbedingt zur Marktreife gebracht werden!

@@ -1,0 +1,1 @@
+![](35432261-0-ScrumAlliance-REPORT.pdf)

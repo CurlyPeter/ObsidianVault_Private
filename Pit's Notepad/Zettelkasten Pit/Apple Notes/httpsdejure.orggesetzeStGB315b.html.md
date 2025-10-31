@@ -1,0 +1,1 @@
+# **https://dejure.org/gesetze/StGB/315b.html**

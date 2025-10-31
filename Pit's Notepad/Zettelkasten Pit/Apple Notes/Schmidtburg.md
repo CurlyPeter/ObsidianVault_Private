@@ -1,0 +1,1 @@
+<span style="color:#16181eff;">Bitte vor dem Campen bei Burgvogt Hans-Georg Gerlach telefonisch anmelden (06752/3160).</span>

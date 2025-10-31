@@ -1,0 +1,1 @@
+Hat jedes Prinzip sein Gegenprinzip?

@@ -1,0 +1,1 @@
+![](DasScrumTeam%20AG.pdf)

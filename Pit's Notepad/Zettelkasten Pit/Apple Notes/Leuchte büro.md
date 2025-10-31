@@ -1,0 +1,1 @@
+[**PAR-16 Spot schwarz 230V für GU-10 Lampe**](https://www.prolighting.de/lichttechnik/scheinwerfer/koventionelle-par/par-16/par-16-spot-schwarz-230v-fuer-gu-10-lampe.html)

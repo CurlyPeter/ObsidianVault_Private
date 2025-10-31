@@ -1,0 +1,21 @@
+Baumarkt
+- [x] Elektro?
+- [ ] Sparten
+- [x] Gießkanne
+- [x] Baumschutz
+- [x] Wassersack
+- [x] 2 Wasser Verteiler 4x
+- [x] 2 verbindet 
+- [x] Hefe
+- [x] Mehl
+- [x] Haselnüsse
+- [x] Butter
+- [x] Milch
+
+- [x] Ameisenköder
+- [x] Wasserstelle Rohr 
+- [x] Karabiner in 
+- [x] Seilzugrolle 2x
+- [x] 10m Seil
+- [x] Karabiner 2x
+- [x] Spaz 4,5 8-9cm

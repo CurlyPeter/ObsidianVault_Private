@@ -1,0 +1,1 @@
+[**cognitive biases, systems optimizations, and component teams: a LeSS perspective**](https://youtu.be/xJXPUZ0m38g)

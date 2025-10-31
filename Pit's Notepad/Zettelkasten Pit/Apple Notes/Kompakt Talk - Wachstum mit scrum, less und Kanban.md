@@ -1,0 +1,1 @@
+Kompakt Talk - Wachstum mit scrum, less und Kanban

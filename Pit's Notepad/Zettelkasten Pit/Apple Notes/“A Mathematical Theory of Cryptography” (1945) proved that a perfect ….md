@@ -1,0 +1,1 @@
+– Life After Google: The Fall of Big Data and the Rise of the Blockchain Economy von George Gilder

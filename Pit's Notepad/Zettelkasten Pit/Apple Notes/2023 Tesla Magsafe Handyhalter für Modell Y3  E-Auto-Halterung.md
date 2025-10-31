@@ -1,0 +1,1 @@
+[**2023 Tesla Magsafe Handyhalter für Modell Y/3 | E-Auto-Halterung**](https://marnana.shop/de-de/products/e-car-mount)

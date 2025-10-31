@@ -1,0 +1,1 @@
+[**Langlaufen in der Dolomitenregion 3 Zinnen**](https://www.drei-zinnen.info/de/aktiv-sport/winter/langlaufen/karte-offene-loipen.html)

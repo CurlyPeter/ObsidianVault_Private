@@ -1,0 +1,3 @@
+[**Homo Deus: A Brief History of Tomorrow (English Edition)**](http://amzn.eu/e4Ko2mz)
+Writing a private diary –a common humanist practice in previous generations –sounds to many present-day youngsters utterly pointless. Why write anything if nobody else can read it? The new motto says: ‘If you experience something –record it. If you record something –upload it. If you upload something –share it.’
+[**Homo Deus: A Brief History of Tomorrow (English Edition)**](http://amzn.eu/81RC526)

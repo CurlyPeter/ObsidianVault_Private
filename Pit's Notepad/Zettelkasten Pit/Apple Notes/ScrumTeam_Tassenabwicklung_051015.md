@@ -1,0 +1,1 @@
+![](ScrumTeam_Tassenabwicklung_051015.pdf)

@@ -1,0 +1,2 @@
+Cut dependencies 
+Improve Comunication

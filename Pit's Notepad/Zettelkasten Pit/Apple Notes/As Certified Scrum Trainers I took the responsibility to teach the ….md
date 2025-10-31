@@ -1,0 +1,1 @@
+As Certified Scrum Trainers I took the responsibility to teach the pure idea of scrum to the world. Removing the non competing clause from the CST contract is because the way of achieving this goal is the wrong way. It is not about to remove the why.

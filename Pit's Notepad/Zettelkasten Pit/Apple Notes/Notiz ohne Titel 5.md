@@ -1,0 +1,1 @@
+<span style="color:#000ff;">Wir haben das Gefühl die Karriereleiter im weiter aufsteigen zu müssen um oben auszusteigen zu können, bemerken aber nicht, dass die Leiter in Wirklichkeit ein Hamsterrad ist in dem uns die meisten Unternehmen nur beschäftigt halten.</span>

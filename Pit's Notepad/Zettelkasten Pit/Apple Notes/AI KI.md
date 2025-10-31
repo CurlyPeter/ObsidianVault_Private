@@ -1,0 +1,1 @@
+[**Midjourney AI installieren, einrichten und nutzen**](https://mizine.de/midjourney/einrichten/)

@@ -1,0 +1,1 @@
+[**Vipassana**](https://de.m.wikipedia.org/wiki/Vipassana)

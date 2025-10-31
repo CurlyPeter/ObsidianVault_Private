@@ -1,0 +1,1 @@
+[**Lauf-Armlinge - schwarz**](https://www.decathlon.de/p/lauf-armlinge-schwarz/_/R-p-154491?mc=8586545&c=farblos&_gl=1*sa938i*_up*MQ..&gclid=CjwKCAjw7NmzBhBLEiwAxrHQ-W0vMTgdIvA-efvS6IiIMuUXxNiicm-mALK-bGTxYPrUpWkRiV_hqRoCWJAQAvD_BwE)

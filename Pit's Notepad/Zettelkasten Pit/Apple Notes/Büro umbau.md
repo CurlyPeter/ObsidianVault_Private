@@ -1,0 +1,1 @@
+[**Bühnensamt B1 konfektioniert in 12 Größen, grau-dunkelgrau (geöst)**](https://www.molton-markt.de/buehnensamt/samtvorhang/samtvorhang-grau-dunkelgrau/buehnensamt-konfektioniert-grau-dunkelgrau-6m-3m.html)

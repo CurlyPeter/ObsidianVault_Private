@@ -1,0 +1,1 @@
+![](dav_panorama_3_2024.pdf)

@@ -1,0 +1,1 @@
+[**20mm massiver Alu-Kühlkörper - in Verbindung mit 1W/3W/5W Technik**](https://www.led-tech.de/de/Massiver-Alu-Kuehlkoerper-20-50)

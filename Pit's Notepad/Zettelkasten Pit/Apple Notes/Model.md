@@ -1,0 +1,1 @@
+<span style="color:#000ff;">the only self-consistent model of a system is the system itself</span>

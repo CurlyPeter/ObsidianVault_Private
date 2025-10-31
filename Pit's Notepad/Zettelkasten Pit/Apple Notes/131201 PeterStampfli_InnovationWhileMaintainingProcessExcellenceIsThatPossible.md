@@ -1,0 +1,1 @@
+![](131201%20PeterStampfli_InnovationWhileMaintainingProcessExcellenceIsThatPossible.pdf)

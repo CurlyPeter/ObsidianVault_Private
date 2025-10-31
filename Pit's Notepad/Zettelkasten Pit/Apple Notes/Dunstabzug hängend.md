@@ -1,0 +1,2 @@
+[**Dunstabzugshaube Inselhaube Deckenhaube Edelstahl freihängend Design Bergstroem | real.de**](https://www.real.de/product/315534165/?kwd=&source=pla&id_unit=381706409523&gclid=CJ3X0fvQt9ICFYeVGwod-_gLyQ)
+Dunstabzug hängend

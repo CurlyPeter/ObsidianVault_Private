@@ -1,0 +1,2 @@
+[**Internal structure of LOVOT Vol.01**](https://www.youtube.com/watch?time_continue=79&v=F48l5HEZIN0&feature=emb_logo)
+[**LOVOTの内部構造をGROOVE Xが大公開　可愛さはこうして作られた　頭脳に2つのCPUとFPGA　気になる出荷台数は? |  ロボスタ - ロボット情報WEBマガジン**](https://robotstart.info/2020/02/06/lovot-internal-structure.html)

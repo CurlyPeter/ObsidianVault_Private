@@ -1,0 +1,8 @@
+- Ethiken auf der falschen Seite
+- Checkliste an Hotel:
+	- Kleine tische a 4-5 Personen
+	- Paket im Raum
+	- Stehtisch
+	- Stuhlkreis wo der Beamer ist
+	- Frühstückspause gleich am Morgen in den Raum stellen
+- Ein Event organisieren Abends in den Räumen

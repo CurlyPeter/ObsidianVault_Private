@@ -1,0 +1,1 @@
+[**Planbar unterwegs: die Fahrplanauskunft**](https://www.bwegt.de/ihr-nahverkehr/reiseinformationen/fahrplanauskunft)

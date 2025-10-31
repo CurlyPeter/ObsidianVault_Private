@@ -1,0 +1,1 @@
+[**More with LeSS -  Simplifying Organizations with 7 Design Principles - Large Scale Scrum (LeSS)**](https://less.works/blog/2020/03/02/more-with-less-seven-tools-for-simplifying-organizations.html)

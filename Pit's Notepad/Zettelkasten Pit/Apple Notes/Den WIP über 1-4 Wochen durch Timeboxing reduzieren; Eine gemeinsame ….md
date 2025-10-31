@@ -1,0 +1,1 @@
+Den WIP über 1-4 Wochen durch Timeboxing reduzieren; Eine gemeinsame Detailplanung für diesen Zeitraum; Dafür sorgen, dass sich ein Team von Spezialisten selbst organisieren kann; Feste Timeboxen, um Entwicklungsfortschritt und Arbeitsweisen zu inspizieren und anzupassen; Den Mitarbeitern die Komplexität der Organisationspolitik durch klar definierte Führungsverantwortung nehmen.

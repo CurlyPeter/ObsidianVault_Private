@@ -1,0 +1,1 @@
+Ein Team nach Anzahl feature ist in etwa so sinnvoll wie eine Feuerwehr nach Anzahl gelöschter Feuer.

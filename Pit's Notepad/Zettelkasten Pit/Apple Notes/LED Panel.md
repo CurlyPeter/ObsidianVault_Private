@@ -1,0 +1,1 @@
+https://www.longlife-led.de/CCT-LED-Panel-62x62cm-24V-40W/2724?affiliateCode=google_sea&campaignCode=agency&gclid=Cj0KCQjwtJKqBhCaARIsAN_yS_knbVJ1PQDTir3Axpo36MMvzKta49tbC5t1JTfBEsAEb6zlgGFSy8QaAvV8EALw_wcB

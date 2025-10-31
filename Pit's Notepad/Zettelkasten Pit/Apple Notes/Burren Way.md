@@ -1,0 +1,1 @@
+[**Burren Way**](https://www.sportireland.ie/outdoors/walking/trails/burren-way)

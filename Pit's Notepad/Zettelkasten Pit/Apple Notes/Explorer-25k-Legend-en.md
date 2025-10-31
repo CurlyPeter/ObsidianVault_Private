@@ -1,0 +1,1 @@
+![](Explorer-25k-Legend-en.pdf)

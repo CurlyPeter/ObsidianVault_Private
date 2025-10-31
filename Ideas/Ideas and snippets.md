@@ -1,0 +1,3 @@
+#### Management and Leadership
+
+If you look for a definition of _leadership_, you will find that it varies greatly, especially in more recent business dictionaries. For many, the term is, first and foremost, an alternative to “management” and a promise to stand out from the ever-increasing mass of managers. The promise is that as a manager, you are better (paid) than a regular employee. I can only advise everyone to be particularly careful when the term _leadership_ offers someone a career or promotion opportunity.

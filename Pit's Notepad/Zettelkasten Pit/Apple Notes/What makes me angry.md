@@ -1,0 +1,1 @@
+<span style="color:#000ff;">Giora - good start to gather stories for open space.</span>

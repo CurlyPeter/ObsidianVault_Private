@@ -1,0 +1,1 @@
+[**Magnesium - K+S Aktiengesellschaft**](https://www.kpluss.com/de-de/geschaeftsfelder-produkte/landwirtschaft/kali-akademie/naehrstoffe/de-magnesium/)

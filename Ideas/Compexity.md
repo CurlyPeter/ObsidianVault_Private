@@ -1,0 +1,2 @@
+#advice
+If you feel overwhelmed by complexity, don't attempt to manage it. Simplify the system you are in to a level you can handle. This often comes with uncomfortable consequences that you may not want to accept, which is likely the reason you try to manage it.

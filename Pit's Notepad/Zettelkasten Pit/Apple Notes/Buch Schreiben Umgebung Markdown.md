@@ -1,0 +1,1 @@
+[**Manuscripts, open and automated**](https://manubot.org/)

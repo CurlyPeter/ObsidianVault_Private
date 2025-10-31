@@ -1,0 +1,3 @@
+The scientist who says her life is meaningful because she increases the store of human knowledge, the soldier who declares that his life is meaningful because he fights to defend his homeland, and the entrepreneur who finds meaning in building a new company are no less delusional than their medieval counterparts who found meaning in reading scriptures, going on a crusade or building a new cathedral.
+
+So perhaps happiness is synchronising one’s personal delusions of meaning with the prevailing collective delusions.

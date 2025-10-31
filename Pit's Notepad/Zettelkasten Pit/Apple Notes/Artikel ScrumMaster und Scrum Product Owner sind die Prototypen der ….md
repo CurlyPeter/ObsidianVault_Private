@@ -1,0 +1,1 @@
+Artikel: ScrumMaster und Scrum Product Owner sind die Prototypen der Agilen Führungskraft

@@ -1,0 +1,1 @@
+Apples system optimization goal is increasing product quality

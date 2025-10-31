@@ -1,0 +1,1 @@
+[**Sygard Grytting - medieval hostel**](https://pilegrimsleden.no/en/interest-points/sygard-grytting-middelalderloft)

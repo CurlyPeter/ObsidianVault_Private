@@ -1,0 +1,1 @@
+# Explaining what a Product Backlog ist may be difficult. But it is easy so say what it never will be. A Product Backlog ist never empty, complete nor consistent.

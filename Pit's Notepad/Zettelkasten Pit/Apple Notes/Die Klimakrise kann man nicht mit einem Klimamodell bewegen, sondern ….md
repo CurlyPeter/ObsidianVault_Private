@@ -1,0 +1,1 @@
+# Die Klimakrise kann man nicht mit einem Klimamodell bewegen, sondern nur mit einem gesamt gesellschaftlichen Modell, wovon es nur ein Teil ist. Da wir das nie vollständige erfassen können, bleibt uns nur das handle, messen und anpassen übrig.

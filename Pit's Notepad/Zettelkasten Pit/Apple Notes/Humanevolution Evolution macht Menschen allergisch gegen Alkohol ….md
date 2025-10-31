@@ -1,0 +1,1 @@
+[**Humanevolution: Evolution macht Menschen allergisch gegen Alkohol**](http://www.spektrum.de/news/evolution-macht-menschen-allergisch-gegen-alkohol/1545665?utm_source=zon&utm_medium=teaser&utm_content=news&utm_campaign=ZON_KOOP)

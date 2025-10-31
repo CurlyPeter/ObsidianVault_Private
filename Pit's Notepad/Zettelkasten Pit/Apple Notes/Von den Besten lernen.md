@@ -1,0 +1,1 @@
+Jeder unserer Trainer hat Scrum **über 10 Jahre lang** selbst eingesetzt. Er kennt die Praxis, die Arbeitswelt und die Lösungen, die Sie weiter voranbringen. Egal ob **Großunternehmen** oder **Startup**. Unser Seminar eignet sich **für alle Branchen**: Obwohl Scrum in der IT-Welt sehr bekannt ist, lernen Sie es in unseren Kursen als universellere Philosophie kennen.

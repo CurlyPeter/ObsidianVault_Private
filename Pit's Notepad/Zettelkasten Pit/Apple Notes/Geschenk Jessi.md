@@ -1,0 +1,1 @@
+Bank für vor die Küche

@@ -1,0 +1,1 @@
+[**Wandern in Teneriffa: Die 15 schönsten Touren (mit Karte + GPX)**](https://der-eskapist.de/spanien/teneriffa-wandern-schoenste-touren-karte-gpx/)

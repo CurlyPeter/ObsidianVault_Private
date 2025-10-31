@@ -1,0 +1,2 @@
+- 2x Namen-Aufkleber je Kurs
+- 1x je Kurs Rollenkarten

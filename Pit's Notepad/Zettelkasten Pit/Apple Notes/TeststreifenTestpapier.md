@@ -1,0 +1,2 @@
+Eine andere Möglichkeit besteht darin, zerkrümelte Erde im Verhältnis 1:1 mit destilliertem Wasser zu mischen und Indikatorpapier hineinzuhalten. Anhand der Farbe und dem Vergleich mit einer Farbskala können Sie den pH-Wert messen. Es gibt Pflanzen, die sehr eng an den Säurebereich des Bodens angepasst sind, dass Sie auch die Pflanzen als Indikatoren für den pH-Wert nutzen können.
+[**▶ Den pH-Wert im Boden messen und erfahren - so einfach!**](https://www.bodenanalyse-zentrum.de/lexikon/ph-wert-im-boden-messen/)

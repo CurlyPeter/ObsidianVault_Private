@@ -1,0 +1,10 @@
+- [x] Sonnencreme 
+- [x] Zahnbürste 
+- [ ] Sandalen
+- [ ] Hose Jessi
+- [x] Ein Essen warm?
+- [x] Schokolade
+- [x] Plaster
+- [x] Brot
+- [x] Käse Wurst
+- [x] Nüsse

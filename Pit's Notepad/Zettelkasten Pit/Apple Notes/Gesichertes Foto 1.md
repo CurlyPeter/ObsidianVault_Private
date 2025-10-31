@@ -1,0 +1,1 @@
+![](Paper.Journal.1.png)

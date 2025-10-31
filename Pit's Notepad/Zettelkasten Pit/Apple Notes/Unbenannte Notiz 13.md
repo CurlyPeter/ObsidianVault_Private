@@ -1,0 +1,1 @@
+<span style="color:#000ff;">Dokumentation ist der Versuch der Kommunikation mit einem mir wahrscheinlich unbekannten Person in einer mit unbekannten Zukunft.</span>

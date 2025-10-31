@@ -1,0 +1,1 @@
+Der ScrumMaster ist kein Coach. Oder doch?

@@ -1,0 +1,3 @@
+![](3F24DF2E-1B07-4A36-BDDD-B87AEC12F9DB.jpg)
+
+Raspberry Gehäuse

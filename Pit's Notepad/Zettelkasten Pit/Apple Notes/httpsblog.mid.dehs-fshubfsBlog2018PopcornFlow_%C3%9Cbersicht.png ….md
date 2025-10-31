@@ -1,0 +1,2 @@
+Verbesserungen formulieren 
+[**PopcornFlow – oder: Wir geben „Transparenz“, „Überprüfung“ und „Anpassung“ im agilen Entwicklungsprozess eine Bühne (Teil 2)**](http://blog.mid.de/popcornflow-oder-wir-geben-transparenz-%C3%BCberpr%C3%BCfung-und-anpassung-im-agilen-entwicklungsprozess-eine-b%C3%BChne-teil-2)

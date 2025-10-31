@@ -1,0 +1,5 @@
+| You’re just one click away from getting started with Postman. All you need to do is verify your email address to activate your Postman account.
+<a href="https://links.getpostman.com/ls/click?upn=3y7nOEZSJOF1v-2Fv7UyshsClw6pSPp9j71m85zYfrmPeMkrjqit7zxHzsvknXb2TWUpdBzKxrcFrgRr2ih-2F-2FaPO2EpVzGngc4iV-2BKdf5-2FzWGIg4Y1FH3shKfXXAVI4eoaIo7Z_7vnOqMSgAIlIKOOOTWcvR2ONPf-2FMa35o2SQWXwV1qcXX95-2FY3jdcGAAfGwH3gChuzzf4Y0dapcUP-2F6Y4C4oDQKY6XxQjS-2FU4Gn9QYYI3ICOa928o4Oqh-2BxtlHuc-2B7zrvcXLKJHXrgO3pBPbLWqN9ae3143RDZUbTP0jh6OtM45FnPiLMoPri90i1K4Q1uYQf713vNuBJI16NljX1kqvezh8QbgvuaYaPfwXvz9UxrD21934Fn0IcKwkarxdi3D5y35BRBYCcoGU5vNde81e3f1XFMhjjgQm4zOWxNHuMiLyEJWThsLnbJ5iWQPhW7wm5i7tEjuzXG4BX6RYJ13ASrCq-2FCIbUU8wkxRo5fO1kUb4-3D" rel="noopener" class="external-link" target="_blank" style="color:#e4afaff;"><b>Confirm My Email</b></a>
+Once your account is activated, you can start using all of Postman’s features to organize, test, monitor, and share your API requests.
+You’re receiving this email because you recently created a new Postman account or added a new email address. If this wasn’t you, please ignore this email |
+| -- |

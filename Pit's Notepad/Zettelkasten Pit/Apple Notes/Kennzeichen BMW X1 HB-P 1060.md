@@ -1,0 +1,1 @@
+Wir finanzieren das Unternehmen und die Experimente in neue Themen durch unsere Arbeit im Kursraum. Wie wollt Ihr, Andy und Kai das weiter finanzieren, wenn ich Peter ab dem 1.6 keine Kurse mehr gebe?

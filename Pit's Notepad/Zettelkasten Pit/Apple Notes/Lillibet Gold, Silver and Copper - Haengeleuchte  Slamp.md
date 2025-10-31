@@ -1,0 +1,1 @@
+[**Lillibet Gold, Silver and Copper - Haengeleuchte | Slamp**](http://www.slamp.com/de/produkte/haengeleuchte/lillibet-gold-silver-copper/)

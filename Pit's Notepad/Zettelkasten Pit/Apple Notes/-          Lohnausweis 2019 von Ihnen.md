@@ -1,0 +1,16 @@
+- &nbsp;
+
+		- [ ] -          Lohnsteuerbescheinigung 2019 Ihrer Frau
+		- [x] -          Dividendenzahlung des ScrumTeams in 2019
+		- [ ] -          Nachweis der Besteuerung des Arbeitslohns in der Schweiz
+				- [ ] Mir
+		- [ ] -          Weitere Handwerkerleistungen
+		- [ ] -          Weitere Krankheitskosten
+		- [ ] -          Beitragsnachweise zu den Versicherungen:
+			- [ ] o   ERGO Nr. 428540155
+			- [ ] o   ERGO Nr. 426169149
+			- [ ] o   ERGO Nr. 426166532
+			- [ ] o   AachenMünchener Nr. 2762622410
+		- [ ] -          Spendenbelege
+		- [ ] -          Steuerbescheinigungen über Kapitalerträge
+		- [ ] -          War Ihre Tochter Anna-Luna das komplette Jahr 2019 noch in der Schule ?

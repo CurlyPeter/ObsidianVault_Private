@@ -1,0 +1,1 @@
+[**The Flattening Firm: Evidence from Panel Data on the Changing Nature of Corporate Hierarchies on JSTOR**](https://www.jstor.org/stable/40043033)

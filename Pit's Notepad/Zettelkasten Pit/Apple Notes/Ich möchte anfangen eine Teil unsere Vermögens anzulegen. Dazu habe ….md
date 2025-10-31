@@ -1,0 +1,1 @@
+Ich möchte anfangen eine Teil unsere Vermögens anzulegen. Dazu habe ich ja ein Tradingkonto bei Swissquote eingerichtet. Muss mich da aber erst einmal rantasten, bevor ich das große Beträge anlege. @viktoria bitte transferiere erste einmal 10k CHF, 5k Euro, 5k USD auf das Konto. Im nächsten Sch

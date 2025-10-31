@@ -1,0 +1,5 @@
+[**CraftWare Pro Slicer from Craftbot - Slice like never before!**](https://craftbot.com/craftware/)
+[**10 Slicer für den 3D Druck - Welche gibt es und was können sie?**](https://threedom.de/3d-drucker-software/slicer)
+[**Im Test: Anycubic I3 MEGA 3D-Drucker (Review + Fazit)**](https://www.china-gadgets.de/test-anycubic-i3-mega-3d-drucker/)
+[**211.84€ 34% OFF|Anycubic 3D Drucker Mega S 3d print Kits Plus Größe MegaS Volle Metall Touch Screen 3d Drucker Mega S 3D Drucker Impresora 3d|3D Printers|**](https://www.aliexpress.com/item/4000045891552.html)
+[**211.84€ 34% OFF|Anycubic 3D Drucker Mega S 3d print Kits Plus Größe MegaS Volle Metall Touch Screen 3d Drucker Mega S 3D Drucker Impresora 3d|3D Printers|**](https://www.aliexpress.com/item/4000045891552.html?spm=2114.12010612.8148356.3.2ca168ceARCKSU)

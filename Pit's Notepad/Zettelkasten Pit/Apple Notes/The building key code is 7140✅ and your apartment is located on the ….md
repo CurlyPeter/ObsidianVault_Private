@@ -1,0 +1,1 @@
+We are always available to assist you through here or WhatsApp <a href="tel:+351%20914%20438%20334" rel="noopener" class="external-link" target="_blank"><u>+351 914 438 334</u></a>.

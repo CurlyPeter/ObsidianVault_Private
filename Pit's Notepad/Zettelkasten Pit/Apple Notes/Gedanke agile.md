@@ -1,0 +1,1 @@
+Wir Menschen streben nach Stabilität und wir meiden Agilität / Fragilität

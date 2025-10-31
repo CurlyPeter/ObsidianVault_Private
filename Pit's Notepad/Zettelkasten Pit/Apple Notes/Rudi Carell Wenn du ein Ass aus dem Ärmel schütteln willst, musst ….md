@@ -1,0 +1,1 @@
+**Rudi** Carell: "**Wenn du ein Ass aus dem Ärmel** schütteln willst, musst du vorher eins rein tun."

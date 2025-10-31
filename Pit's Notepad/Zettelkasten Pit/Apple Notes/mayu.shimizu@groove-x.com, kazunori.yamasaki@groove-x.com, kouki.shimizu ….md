@@ -1,0 +1,1 @@
+mayu.shimizu@groove-x.com, kazunori.yamasaki@groove-x.com, kouki.shimizu@groove-x.com

@@ -1,0 +1,1 @@
+[**MegaMat Duo 10 TXY - Mat**](https://www.exped.com/de/produkte/schlafmatten/megamat-duo-10-txy?sku=7640445455114)

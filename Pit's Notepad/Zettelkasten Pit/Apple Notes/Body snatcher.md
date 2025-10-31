@@ -1,0 +1,1 @@
+Artikel über Consulting, SAP und Co

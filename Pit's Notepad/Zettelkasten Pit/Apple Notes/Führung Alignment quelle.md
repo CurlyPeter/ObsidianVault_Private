@@ -1,0 +1,1 @@
+[**Mission command**](https://en.wikipedia.org/wiki/Mission_command)

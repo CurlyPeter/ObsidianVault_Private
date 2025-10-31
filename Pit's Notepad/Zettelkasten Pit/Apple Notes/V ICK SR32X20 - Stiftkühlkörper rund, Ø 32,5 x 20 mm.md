@@ -1,0 +1,2 @@
+[**V ICK SR32X20 - Stiftkühlkörper rund, Ø 32,5 x 20 mm**](https://www.reichelt.de/stiftkuehlkoerper-rund-32-5-x-20-mm-v-ick-sr32x20-p100983.html)
+[**Home - Fischerelektronik, Produkt: ICK S 22 x 22 x 18,5**](https://www.fischerelektronik.de/web_fischer/de_DE/K%C3%BChlk%C3%B6rper/B03/Stiftk%C3%BChlk%C3%B6rper/$catalogue/fischerData/PG/ICKS22x22x18.5/search.xhtml)

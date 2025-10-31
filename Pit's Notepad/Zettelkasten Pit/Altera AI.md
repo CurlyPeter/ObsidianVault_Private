@@ -1,0 +1,3 @@
+https://altera.al/ 
+
+Altera AI is an applied research company focused on building digital humans, which are machines endowed with fundamental human qualities. Founded by Dr. Robert Yang, a former MIT professor, Altera AI consists of a team of experts from prestigious institutions like MIT, Stanford, and Google. Their mission is to create digital human beings that can live, care, and grow alongside humans. Initially, their research prototypes were tested in gaming environments, but they aim to integrate these digital humans into daily life.

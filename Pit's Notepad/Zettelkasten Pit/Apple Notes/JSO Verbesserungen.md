@@ -1,0 +1,4 @@
+- Review Retro: Pfeile Zeiten sind in der falschen Richtung
+- Letzte Folie bei Retro sollte beim Thema „Vertrauen“ stehen bleiben
+- Review und Retro in 2 Video-Lektionen aufteilen
+- Bild-Beispiel für Retro und/oder Increment

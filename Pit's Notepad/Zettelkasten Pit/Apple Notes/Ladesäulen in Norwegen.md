@@ -1,0 +1,1 @@
+[**Ladesäulen in Norwegen**](https://www.goingelectric.de/stromtankstellen/Norwegen/)

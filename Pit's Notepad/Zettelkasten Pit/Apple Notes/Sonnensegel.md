@@ -1,0 +1,1 @@
+[**Sonnensegel nach Maß mit unserem Konfigurator | Pina**](https://www.sonnensegel-pina.de/epages/63398503.sf/secea3dfc1620/?ObjectPath=/Shops/63398503/Categories/FORM_Konfigurator)

@@ -1,0 +1,1 @@
+![](Fokusthema.%20Teamarbeit%20ist%20schlecht..jpeg)

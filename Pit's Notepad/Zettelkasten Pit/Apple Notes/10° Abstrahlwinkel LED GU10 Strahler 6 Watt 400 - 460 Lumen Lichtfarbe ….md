@@ -1,0 +1,2 @@
+[**10° Abstrahlwinkel LED GU10 Strahler 6 Watt 400 - 460 Lumen Lichtfarbe wählbar**](https://led-homeshop.de/100-abstrahlwinkel-led-gu10-strahler-6-watt-400-460-lumen-lichtfarbe-waehlbar?gclid=EAIaIQobChMI1MCImtSp3gIVx-FRCh2VZg3iEAQYBCABEgJMKPD_BwE)
+[**Eurolite LED PST-3W 3200 K Spot**](https://www.thomann.de/de/eurolite_led_pst_3w_3200_k_spot.htm)

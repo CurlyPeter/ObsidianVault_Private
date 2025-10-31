@@ -1,0 +1,1 @@
+# Wir nutzen ausschließlich ein Geschlecht für Rollen und Funktionsbeschreibungen, um die Lesbarkeit zu erhalten. Es steht außer Frage, dass ein Mensch jeden Geschlechtes diese einnehmen kann und das benutzte Geschlecht sich auf die Funktion bezieht und damit keine Information trägt.

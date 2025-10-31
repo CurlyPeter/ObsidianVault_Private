@@ -1,0 +1,1 @@
+[**[SCRIPT] Accelerate All Applications On eGPU - macOS 10.13.4...**](https://egpu.io/forums/mac-setup/potentially-accelerate-all-applications-on-egpu-macos-10-13-4/)

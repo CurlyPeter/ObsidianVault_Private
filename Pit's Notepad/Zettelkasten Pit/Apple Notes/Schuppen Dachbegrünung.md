@@ -1,0 +1,1 @@
+[**Dachsubstrat Vulkaplus 0/12 mm für Extensiv-Begrünung, gü nach RAL - Menz Naturbaustoffe in Wiesbaden**](https://menz-gmbh.de/produkte/dachsubstrat-vulkaplus-012-mm-fuer-extensiv-begruenung-gue-nach-ral-0189/)

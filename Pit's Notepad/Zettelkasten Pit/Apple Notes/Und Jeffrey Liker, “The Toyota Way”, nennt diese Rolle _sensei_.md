@@ -1,0 +1,3 @@
+The word “sensei” is used in Japan with some reverence to refer to a teacher who has mastered the subject. A company needs a sensei to provide technical assistance and change management advice when it is trying something for the first time. This “teacher” will help facilitate the transformation, get quick results, and keep the momentum building. But a good teacher will not do it all for you. If you want a lean organization, you need to get lean knowledge into your company, either by hiring experts with a minimum of five years’ lean experience or by hiring outside experts as consultants.
+
+Liker, Jeffrey. The Toyota Way: 14 Management Principles from the World’s Greatest Manufacturer . McGraw-Hill Education. Kindle-Version

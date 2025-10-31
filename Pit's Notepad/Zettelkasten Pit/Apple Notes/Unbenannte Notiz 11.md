@@ -1,0 +1,1 @@
+<span style="color:#000ff;">Kreativität ist keine Gabe, sondern der Mut sich zu blamieren.</span>

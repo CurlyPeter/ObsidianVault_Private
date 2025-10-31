@@ -1,0 +1,1 @@
+Write only the following keyword with capitalized first letters: Arena, Enterprise, Owner, Coach, Team, Product, Backlog, Goal, Ambition, Accountable Representative, Match

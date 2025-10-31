@@ -1,0 +1,1 @@
+[**E8 von Bad Godesberg (Bonn) bis Worms (289km)**](https://www.longdistancepaths.eu/e8/de/index.php?start=106&end=125&B1=Start/Ende-Punkt)

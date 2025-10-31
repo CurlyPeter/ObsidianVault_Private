@@ -1,0 +1,1 @@
+![](managing20complexity20and20chaos20in20times20of20crisis-KJNA30569ENN.pdf)

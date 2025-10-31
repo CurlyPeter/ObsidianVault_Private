@@ -1,0 +1,1 @@
+[**Mikrowindkraft**](http://www.myskywind.com/SkyWind/skywind.html)

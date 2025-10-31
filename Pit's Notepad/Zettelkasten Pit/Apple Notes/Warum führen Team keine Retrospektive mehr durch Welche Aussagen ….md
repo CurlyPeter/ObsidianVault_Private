@@ -1,0 +1,1 @@
+Warum führen Team keine Retrospektive mehr durch? Welche Aussagen könnten den tatsächlichen Grund treffen?

@@ -1,0 +1,1 @@
+[**Shure WH20XLR**](https://www.thomann.de/de/shure_wh20xlr.htm)

@@ -1,0 +1,1 @@
+# Agile is a mindset is a excuse to do anything.

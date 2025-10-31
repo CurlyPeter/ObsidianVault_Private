@@ -1,0 +1,1 @@
+Diesen Sonntag ab 11:00 Brunch bei uns! Würde mich freuen wenn du/ihr kannst/könnt. Pit §:-)

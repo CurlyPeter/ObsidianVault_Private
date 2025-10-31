@@ -1,0 +1,5 @@
+Die Fotogeschäfte südlich des Tokyo-Hauptbahnhofs, im Gebiet "Ginza" scheinen eher kleine Läden zu sein, die in der Regel auch vorwiegend gebrauchte Kameras und Objektive verkaufen. Außerdem haben diese nur bis 20:00 Uhr geöffnet. habe ich nie geschafft. Als ich dort war, waren die Geschäfte schon zu und hatten meist auch die Rolläden unten.
+Ein großes Geschäft für neue Fotoartikel ist Yodobashi-Camera, z,B. in der Electronic City, östlich des Bahnhofs Akihabara oder wohl auch Map-Camera. nahe des Bahnhofs Shinjuku..
+
+Mein Hotel lag nur wenige hundert Meter von Akihabara entfernt und die Öffnungszeit bis 22:00 Uhr war auch für meine Terminsituation interessant
+[**Kamera-Shopping in Tokyo - Netzwerk Fotografie / Nikon-Community**](https://www.nikon-fotografie.de/vbulletin/kaufberatung/284160-kamera-shopping-in-tokyo.html)

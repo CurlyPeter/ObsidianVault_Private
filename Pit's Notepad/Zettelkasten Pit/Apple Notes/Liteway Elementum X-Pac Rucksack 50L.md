@@ -1,0 +1,5 @@
+[**Liteway Elementum X-Pac Rucksack 50L**](https://www.walkonthewildside.de/ultraleichte-rucksacke/5592-liteway-elementum-x-pac-rucksack-50l.html)
+[**Liteway Elementum Gridstop Rucksack 50L**](https://www.walkonthewildside.de/ultraleichte-rucksacke/5311-liteway-elementum-gridstop-rucksack-50l.html)
+[**Lundhags Padje Light 45**](https://www.chrispacks.com/Lundhags-Padje-Light-45L/lundhags-padje-45.1)
+[**Atrack**](https://www.ortlieb.com/de_de/atrack+R7055)
+[**Lightning 45 - Backpack**](https://www.exped.com/de/produkte/rucksaecke/lightning-45?sku=7640445457934)

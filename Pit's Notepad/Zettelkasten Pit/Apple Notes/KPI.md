@@ -1,0 +1,1 @@
+[**Hitting the target but missing the point - myths about target setting**](https://www.linkedin.com/pulse/hitting-target-missing-point-myths-setting-bjarte-bogsnes)

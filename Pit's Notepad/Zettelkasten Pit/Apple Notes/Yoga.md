@@ -1,0 +1,1 @@
+[**Yoga Morgenroutine für Anfänger | Perfekt nach dem Aufstehen | Aufwärmen und wach werden**](https://youtu.be/KlYaZcLu_l8?list=PL-G7EJFoxFcfVIc4EzytG-UhFVBq9AEKs)

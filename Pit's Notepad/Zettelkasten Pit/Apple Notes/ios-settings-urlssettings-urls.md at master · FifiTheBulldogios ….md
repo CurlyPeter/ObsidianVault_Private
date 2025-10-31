@@ -1,0 +1,2 @@
+[**ios-settings-urls/settings-urls.md at master · FifiTheBulldog/ios-settings-urls**](https://github.com/FifiTheBulldog/ios-settings-urls/blob/master/settings-urls.md)
+[**OMGnotThatGuy/ios_internal_urls: A list of the internal iOS URLs and scripts for extracting them.**](https://github.com/OMGnotThatGuy/ios_internal_urls)

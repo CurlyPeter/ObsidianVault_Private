@@ -1,0 +1,1 @@
+[**macOS 14 Sonoma auf nicht mehr unterstützten Macs installieren**](https://www.heise.de/ratgeber/macOS-14-Sonoma-auf-nicht-mehr-unterstuetzten-Macs-installieren-9548785.html?wt_mc=nl.red.ho.ho-nl-plus.2023-12-08.link.link)

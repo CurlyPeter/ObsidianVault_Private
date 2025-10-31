@@ -1,0 +1,1 @@
+[**Complete List of AppleScript Key Codes**](https://eastmanreference.com/complete-list-of-applescript-key-codes)

@@ -1,0 +1,1 @@
+[**mgmeyers/obsidian-easy-bake: Compile many Obsidian notes down to one.**](https://github.com/mgmeyers/obsidian-easy-bake)

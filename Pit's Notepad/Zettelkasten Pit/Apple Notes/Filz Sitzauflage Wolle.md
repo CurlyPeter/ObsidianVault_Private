@@ -1,0 +1,1 @@
+[**Filz! Stuhlauflage, Sitzauflage nach Maß in 23 Farben**](https://www.monofaktur.de/stuhlauflage-sitzauflage-filz-5mm-nach-mass)

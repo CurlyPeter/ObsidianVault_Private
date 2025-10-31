@@ -1,0 +1,1 @@
+![](pdfAdLom4.pdf)

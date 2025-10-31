@@ -1,0 +1,1 @@
+Great! Most probably not the same flight. LH906 arrival 12:40. Plans for today? How about meeting each other?

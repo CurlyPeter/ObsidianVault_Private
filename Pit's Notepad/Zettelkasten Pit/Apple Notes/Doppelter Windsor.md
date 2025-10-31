@@ -1,0 +1,1 @@
+[**Krawattenknoten binden: Der Doppelte Windsor-Knoten**](https://www.youtube.com/watch?v=mIIX-KF4Bbg&feature=share)

@@ -1,0 +1,1 @@
+[**Gardinenschiene Aluminium 1-läufig PRIMAX Weiß 100 cm**](https://www.interdeco.de/gardinenschienen/aluminium/gardinenschiene-aluminium-1-laeufig-primax-weiss.html)

@@ -1,0 +1,1 @@
+[**Teure Fehler: Die 7 größten Irrtümer in schwierigen Verhandlungen**](http://amzn.eu/1dFIBmm)

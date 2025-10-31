@@ -1,0 +1,1 @@
+[**DJH Jugendherberge Burg Rothenfels - Angebote + mehr | Bayern**](https://www.jugendherberge.de/jugendherbergen/burg-rothenfels-264/portraet/)

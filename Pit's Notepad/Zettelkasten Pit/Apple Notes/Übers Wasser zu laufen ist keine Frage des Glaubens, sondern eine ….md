@@ -1,0 +1,1 @@
+Spruch gefunden durch Udo

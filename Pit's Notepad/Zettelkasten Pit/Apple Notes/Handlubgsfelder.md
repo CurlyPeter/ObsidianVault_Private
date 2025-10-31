@@ -1,0 +1,6 @@
+Effektive Teams schaffen
+Unternehmen führen
+Erfolgreiche Produkte entwickeln
+Dienstleistungen skalieren
+Prozesse effizienteren optimieren
+Kosten sparen

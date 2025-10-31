@@ -1,0 +1,1 @@
+# A Spike is an experiment to prove, if a technical approach is fulfilling nonfunctional requirements or aspects.

@@ -1,0 +1,6 @@
+- Teilnehmer sind nicht in einem CSPO Kurs in Moodle und
+- Teilnehmer sind nicht in den richtigen Moodle Gruppen, dadurch erfolgt keine weitere Begleitung als CSPO.
+- Start Zeiten nicht klar
+- Als Trainer möchte ich gerne an einem Ort alle relevanten Information sehen.
+- Briefing für den Trainer kurz vor dem Kurs
+- Raum hat keine Checkliste

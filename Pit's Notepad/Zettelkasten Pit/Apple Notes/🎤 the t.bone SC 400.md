@@ -1,0 +1,1 @@
+[**the t.bone SC 400**](https://www.thomann.de/de/the_tbone_sc400_grossmembranmikro.htm)

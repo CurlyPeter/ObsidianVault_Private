@@ -1,0 +1,1 @@
+[**LG 5K + EGPU + MACBOOK PRO**](https://egpu.io/forums/gpu-monitor-peripherals/lg-5k-egpu-macbook-pro/)

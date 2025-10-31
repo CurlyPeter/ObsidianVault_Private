@@ -1,0 +1,1 @@
+*HotSpot der Telekom* Ihre Zugangsdaten lauten: Benutzername "4915141818784", Passwort "s8d-hut-tyz". Es gelten die AGB und Preise zu HotSpot unter www.hotspot.de/agb

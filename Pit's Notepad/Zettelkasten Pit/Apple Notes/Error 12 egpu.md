@@ -1,0 +1,1 @@
+[**HackFlags 0x600 Registry Edit - AMD Radeon eGPU Boot Camp Er...**](https://egpu.io/forums/bootcamp/mbp-2019-late-razer-core-x-amd-rx-5700-xt-hackflags-0x600-worked-for-me/)

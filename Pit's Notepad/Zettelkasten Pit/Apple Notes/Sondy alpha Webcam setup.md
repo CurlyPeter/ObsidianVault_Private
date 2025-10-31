@@ -1,0 +1,1 @@
+[**Using a Sony a6000 Digital Camera as a Webcam**](https://soefficient.com/using-a-sony-a6000-digital-camera-as-a-webcam/)

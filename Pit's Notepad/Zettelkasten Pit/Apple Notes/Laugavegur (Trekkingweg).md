@@ -1,0 +1,1 @@
+[**Laugavegur (Trekkingweg)**](https://de.wikipedia.org/wiki/Laugavegur_(Trekkingweg))

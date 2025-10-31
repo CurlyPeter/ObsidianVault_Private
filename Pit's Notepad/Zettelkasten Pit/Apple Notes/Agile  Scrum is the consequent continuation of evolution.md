@@ -1,0 +1,1 @@
+Agile / Scrum is the consequent continuation of evolution

@@ -1,0 +1,1 @@
+[**§ 186 StGB - Einzelnorm**](https://www.gesetze-im-internet.de/stgb/__186.html)

@@ -1,0 +1,1 @@
+Wie kommt es, dass wir Menschen an Positionen haben die zu 95% Blindleistung erzeuge und dabei gut Geld verdienen und  Vorzüge habe die mit ihrer Wertschöpfung nicht vergleichbar ist? ZDF Personalabteilung vs. Krankenschwester mobiler Dienst.

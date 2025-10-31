@@ -1,0 +1,1 @@
+![](welcome_to_london_summer_2012.pdf)

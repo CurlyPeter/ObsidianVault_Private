@@ -1,0 +1,1 @@
+[**‘Thought Leader’ gives talk that will inspire your thoughts | CBC Radio (Comedy/Satire Skit)**](https://www.youtube.com/watch?v=_ZBKX-6Gz6A&feature=share)

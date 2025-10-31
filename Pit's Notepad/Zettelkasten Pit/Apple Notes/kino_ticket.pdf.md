@@ -1,0 +1,1 @@
+![](kino_ticket.pdf)

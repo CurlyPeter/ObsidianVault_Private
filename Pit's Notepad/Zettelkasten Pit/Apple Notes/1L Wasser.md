@@ -1,0 +1,5 @@
+- 100 g Zucker
+- 1 Zimtstange
+- 6 Gewürznelken (alternativ Vanille/Alkohol)
+- Saft von 2 Zitronen oder Konzentrat
+- 2 kg Birnen

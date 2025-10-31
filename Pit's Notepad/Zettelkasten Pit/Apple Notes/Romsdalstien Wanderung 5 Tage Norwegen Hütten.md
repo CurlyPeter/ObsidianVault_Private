@@ -1,0 +1,2 @@
+[**Måsvassbu - Vasstindbu | Wanderung | Komoot**](https://www.komoot.de/tour/765782740)
+[**Romsdalstien – fünf Tage durch Fjord-Norwegen | Wander-Collection von komoot**](https://www.komoot.de/collection/1150598/romsdalstien-fuenf-tage-durch-fjord-norwegen)

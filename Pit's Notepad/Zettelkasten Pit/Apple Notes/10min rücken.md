@@ -1,0 +1,1 @@
+[**Stretches for Neck, Shoulder & Upper Back Pain Relief | 10 min. Yoga to release Tension and Relax**](https://youtu.be/s-7lyvblFNI?list=PL-G7EJFoxFceiY2Ij3oxIizEqji5mnWZ7)

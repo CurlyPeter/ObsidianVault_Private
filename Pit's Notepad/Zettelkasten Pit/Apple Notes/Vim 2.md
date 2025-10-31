@@ -1,0 +1,1 @@
+[**Kurzeinführung VIM**](https://www-user.tu-chemnitz.de/~hot/VIM/VIM/vikurz.html)

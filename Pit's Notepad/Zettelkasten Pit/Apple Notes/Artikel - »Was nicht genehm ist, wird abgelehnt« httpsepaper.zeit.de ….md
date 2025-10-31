@@ -1,0 +1,1 @@
+Wer, wie ich, das generische Maskulinum verwendet, spürt einen Rechtfertigungszwang.

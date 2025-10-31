@@ -1,0 +1,1 @@
+![](OKR-infographic.png)

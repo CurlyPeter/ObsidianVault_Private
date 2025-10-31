@@ -1,0 +1,1 @@
+# Scrum respects the way value people creating are working and help them to improve it evolutionary. Scrum don’t respects the way how the management is working at the moment and radically change the work leadership system.

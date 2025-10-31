@@ -1,0 +1,1 @@
+3rd day of my Certified Scrum Product Owner Training. Thank you Chantal. You are certified!

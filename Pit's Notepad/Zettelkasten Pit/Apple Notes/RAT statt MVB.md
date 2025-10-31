@@ -1,0 +1,1 @@
+[**The MVP is dead. Use the RAT instead**](https://www.techinasia.com/talk/mvp-dead-rat-instead)

@@ -1,0 +1,1 @@
+![](180218%20Zug%20Schweiz%20Ctypto%20bitcoin%20Artikel.pdf)

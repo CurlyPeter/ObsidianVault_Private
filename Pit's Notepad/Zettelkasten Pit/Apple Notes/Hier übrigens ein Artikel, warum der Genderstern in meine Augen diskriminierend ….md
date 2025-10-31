@@ -1,0 +1,1 @@
+Einige nutzen übrigen den : statt * - das argument: Der : ist leichter mit einem Computer und Braillinterface zu nutzen. Der Artikel stellt allerdings klar, dass Blind eben auch nur eine sehr kleine Gruppe sind, die benachteiligt werden.

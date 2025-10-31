@@ -1,0 +1,1 @@
+<span style="color:#000ff;">People delivering values</span>

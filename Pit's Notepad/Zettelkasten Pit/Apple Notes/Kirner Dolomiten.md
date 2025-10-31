@@ -1,0 +1,10 @@
+<span style="font-family:Arial-BoldMT;font-size:14pt;color:#313132ff;"><b>Klettern im Hunsrück: Kirner Dolomiten</b></span>
+
+ **(error reading attachment)**
+
+<span style="font-family:ArialMT;font-size:11pt;color:#313132ff;">Die gut sichtbaren Felsen des Oberhäuser Massives ragen zwischen Kirn-Kallenfels und dem Örtchen Oberhausen aus dem Wald und bieten selbst bei ihrer geringen Höhe schöne Ausbliche in das im Tal liegende Kirn.</span>
+<span style="font-family:ArialMT;font-size:11pt;color:#313132ff;">Die Quarzitwände dieses kleinen aber feinen Gebietes im Hunsrück sind bestens abgesichert und erlauben für fast alle Routen einen Zustieg von oben, so dass auch das Legen von Top Ropes kein Problem darstellt.</span>
+<span style="font-family:ArialMT;font-size:11pt;color:#313132ff;">Diese Tatsache und das Angebot an überwiegend leichteren Routen – ca.50 Stück im Schwierigkeitsbereich 1 bis 5 UIAA – machen die Felsen zum idealen Einstiegsgebiet in die vertikale Welt. Wer also seine Hallenerfahrung mal mit einem Naturerlebnis verbinden möchte, hat hier eine gute Gelegenheit dazu.</span> 
+<span style="font-family:ArialMT;font-size:11pt;color:#313132ff;">Die Routen sind mit Bohrhaken versehen, allerdings sollte für einige Routen dennoch ein Satz Klemmkeile und Camalots dabei sein. Das hilft, eventuelle Vorstiegsmoralschwächen zu minimieren.</span>
+<span style="font-family:ArialMT;font-size:11pt;color:#313132ff;">All diese Voraussetzungen machen das Gebiet auch ideal für Gruppen und Kurse – so fahren auch wir mit unseren Sicherungskursen in dieses Gebiet – weshalb es an den Felsen gerade an Wochenenden schon mal „eng“ werden kann.</span>
+<span style="font-family:ArialMT;font-size:11pt;color:#313132ff;">Eine schöne Ausweichmöglichkeit bietet der Grat des Wehenfels, der auf der anderen Seite des Tales gut zu sehen ist. Wer möchte, kann hier alpine Erfahrungen sammeln und nette 7 Seillängen über den zumeist leichten Grat klettern. Alpin ist auch die Absicherung, weshalb man sich in dem leichten Gelände sicher bewegen sollte und fähig sein, die Route selber abzusichern.</span>

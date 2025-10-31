@@ -1,0 +1,1 @@
+<span style="color:#000ff;">Vor kurzem durfte ich das neue Mini Buch von Siegfried Kaltenecker und Peter Hundermark reviewen. Zusammen mit meiner Erinnerung an die Keynote von Don R auf dem letzen Scrim Gathering ist mit nochmals Bewust geworden welche Methaphern hinter beiden Konzepten stehen wie diese uns helfen diese Besser zu verstehen.</span>

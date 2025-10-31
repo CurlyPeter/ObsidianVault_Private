@@ -1,0 +1,1 @@
+[**HBM 15 und 22 mm Heavy Duty Rohrbieger**](https://www.hbm-machines.com/de/p/hbm-15-und-22-mm-heavy-duty-rohrbieger?kb=ga_pm_18339823348_&gad_source=1&gclid=EAIaIQobChMI9aPq88K5gwMVVwUGAB2IjwYEEAQYAyABEgJ7ePD_BwE)

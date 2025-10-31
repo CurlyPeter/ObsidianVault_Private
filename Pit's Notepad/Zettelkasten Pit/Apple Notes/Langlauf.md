@@ -1,0 +1,1 @@
+[**Skigebiet Obertilliach / Golzentipp - Lesachtal - Skiurlaub Obertilliach / Golzentipp - Lesachtal**](https://www.bergfex.at/golzentipp-obertilliach-lesachtal/)

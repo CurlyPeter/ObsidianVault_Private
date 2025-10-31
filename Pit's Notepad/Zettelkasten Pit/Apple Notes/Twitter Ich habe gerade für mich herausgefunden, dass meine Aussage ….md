@@ -1,0 +1,1 @@
+I just have realized that my statement "Ownership is Leadership with Power" for me is  deeply conected with §14 (2) in the German constitution "Property entails obligations". #ScrumProductOwner

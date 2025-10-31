@@ -1,0 +1,1 @@
+Scrum is not about a team of generalists. It is about a team of individuals taking responsibility to achieve a common goal.

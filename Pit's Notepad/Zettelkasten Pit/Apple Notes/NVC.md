@@ -1,0 +1,1 @@
+![](4part_nvc_process.pdf)

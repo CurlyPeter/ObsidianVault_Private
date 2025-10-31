@@ -1,0 +1,1 @@
+Don’t be nice as a Product Owner, but be nice as a person! Bas Vodde

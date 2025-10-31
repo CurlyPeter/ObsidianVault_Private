@@ -1,0 +1,1 @@
+<span style="color:#000ff;">http://www.infoq.com/articles/monthly-devops-03-spotify</span>

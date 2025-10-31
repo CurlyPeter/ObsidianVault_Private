@@ -1,0 +1,2 @@
+[**Investieren in TRIQBRIQ: German wood construction system - Climate positive and ready for the mainstream**](https://wefunder.com/triqbriq/updates)
+[**Holzbausystem für nachhaltigen Rohbau**](https://triqbriq.de/)

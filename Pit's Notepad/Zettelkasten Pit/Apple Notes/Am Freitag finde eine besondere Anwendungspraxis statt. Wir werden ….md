@@ -1,0 +1,4 @@
+- Voraussetzung ist, dass alle Teilnehmer schon einmal eine Fallberatung im Präsenztraining mitgemacht haben.
+- Inkl. Fallgeber 3-6 Teilnehmer
+- Es gibt eine geschlossen Channel
+- Wer Fallgeber sein möchte, bitte auf diese Nachricht antworten mit maximal 3 Sätzen, um was es ungefähr geht.

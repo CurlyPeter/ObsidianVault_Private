@@ -1,0 +1,1 @@
+[**Öffnungszeiten und Weg**](https://www.bauteilboerse-bremen.de/btb/website/cms?cms_knuuid=f75e6ee1-3ea3-4fa7-99f5-57d7e4e6e779)

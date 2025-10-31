@@ -1,0 +1,1 @@
+[**Hotel, Romantische Hotels, Klosterhotel, Tagungshotel Rosenheim, Mittelalterliche hotels, Romantische weekends**](http://www.hotel-sangabriele.de/index.html)

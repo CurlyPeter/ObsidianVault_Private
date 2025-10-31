@@ -1,0 +1,1 @@
+Kanban is for optimizing flow, not for optimizing agility.

@@ -1,0 +1,1 @@
+[**Kanutour 6 - 7 Tage - auf der Peene bis Anklam**](https://www.mecklenburgische-seenplatte.de/kanutour-6-7-tage-auf-der-peene-bis-anklam)

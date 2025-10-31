@@ -1,0 +1,1 @@
+[**Maslowsche Bedürfnishierarchie**](https://de.m.wikipedia.org/wiki/Maslowsche_Bed%C3%BCrfnishierarchie)

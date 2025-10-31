@@ -1,0 +1,1 @@
+[**Gesetz von Conway**](https://de.m.wikipedia.org/wiki/Gesetz_von_Conway)

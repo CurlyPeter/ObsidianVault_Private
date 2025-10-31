@@ -1,0 +1,2 @@
+[**Hängeleuchte TROPIC Ø60cm mit Blattgold verziehrt**](http://www.pga-lights.de/moderne-leuchten/moderne-haengeleuchten/222/haengeleuchte-tropic-o60cm-mit-blattgold-verziehrt?c=40)
+Hängeleuchte TROPIC Ø60cm mit Blattgold verziehrt

@@ -1,0 +1,4 @@
+- [ ] <span style="color:#000ff;">Stöcke</span>
+- [ ] <span style="color:#000ff;">Socken</span>
+- [ ] <span style="color:#000ff;">Dichter sack für Rucksack</span>
+- [x] <span style="color:#000ff;">Gürtel</span>

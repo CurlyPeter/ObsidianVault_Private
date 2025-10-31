@@ -1,0 +1,2 @@
+[**Homo Deus: A Brief History of Tomorrow (English Edition)**](http://amzn.eu/bMfbQuc)
+When examining the history of any human network, it is therefore advisable to stop from time to time and look at things from the perspective of some real entity.

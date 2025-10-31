@@ -1,0 +1,1 @@
+https://www.leds.de/products/smartarray-q4-led-punktlichtquelle-2700k-warmweiss-4260127455282-chip-on-board-leds-cob-30772?variant=44132501881138

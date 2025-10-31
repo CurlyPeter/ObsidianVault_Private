@@ -1,0 +1,1 @@
+[**Cervélo C5: Komfortabler Alleskönner**](http://www.zeit.de/mobilitaet/2017-01/cervelo-c5-fahrrad-endurance-bike)

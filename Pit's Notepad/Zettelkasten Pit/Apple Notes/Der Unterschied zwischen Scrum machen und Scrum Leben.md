@@ -1,0 +1,1 @@
+Scrum ist ein Rahmenwerk aber auch ein glaubenssystem bzw philosophy

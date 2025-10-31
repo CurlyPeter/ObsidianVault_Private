@@ -1,0 +1,2 @@
+[**How Novartis Is Becoming A Digital Winner**](https://www.linkedin.com/pulse/how%2Dnovartis%2Dbecoming%2Ddigital%2Dwinner%2Dsteve%2Ddenning/)
+/Users/peterbeck/DasScrumTeam Dropbox/DasScrumTeam AG/Bibliothek/Unternehmen und Organisationen/Democratizing Transformation.pdf

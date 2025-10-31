@@ -1,0 +1,1 @@
+[**Trapez Sonnensegel | wasser- und luftdurchlässig TEX**](https://www.sonnensegel-pina.de/konfigurator/trapez-sonnensegel-wasser-und-luftdurchlaessig-tex?number=632-TT--0011)

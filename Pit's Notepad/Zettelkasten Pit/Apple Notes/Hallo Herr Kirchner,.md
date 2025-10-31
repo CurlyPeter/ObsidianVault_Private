@@ -1,0 +1,10 @@
+ich habe ihre Nachricht erhalten. Wie besprochen hier, die Punkte die wir zum Bebauungsplan reklamieren sollten. In CC habe unseren Architekten Bern Neis. Vielleicht findet er auch noch etwas.
+
+1. Die Fläche MI für unser Grundstück beträgt geschätzt nur 800 - 850m^2. Genau lässt das nicht bestimmen, weil Maßangaben fehlen im BP. Mit der Gemeinde war aber eine Fläche von 1061m^2 vereinbart
+2. Herstellen einer Bauflucht zu den Gebieten WA 1 entlang der Wirtschaftsweg/Sandstraße. Anpassung der Begrünung, Gartenfläche an die tatsächlichen Begebenheiten
+	1. Bei unserem Grundstück springt Bebauungsgrenze im Süden um 1m zu WA1 zurück. Diese sollte bündig mit den Nachbargrundstücken sein
+	2. Die Nachbargrundstücke können eine Garage im Süden bis auf die Grundstücksgrenze setzen. Wir hingehen nur auf die Westseite, was aber keinen Sinn ergibt. (Unter 1.4 im BP)
+	3. Die Begründung im Süden ist keine Ausgleichsfläche sonder war gefordert als Sichtschutz zum Bau im Aussengelände. Die im Süde eine Halle steht und mit dem Baugebiet die Auflagen hinfällig werden, spricht aus nichts dagegen eine Garage bis auf die Grenze zu gehen zu lassen.
+	4. Gegenüber der ursprünglich geplanten Grünfläche, wurde im Süden auf eine Begrünung verzichtet. Weil dort sowieso eine Halle steht. Stattdessen wurde Norden der Streifen breiter bewacht.
+1. Unter 1.8 M1 werden wir verpflichtet eine Mulde zur Aufnahme des zuströmenden Außengebietswasser anzulegen. Eine solche Mulde gibt nicht. Die Formulierung widerspricht demnach der Vereinbarung der Gemeinde. Außerdem: 1m Breite. Und welche Länge? 10cm oder 10m?. Vorschlag wäre for unser Grundstück die Formulierung an die tatsächlichen Gegebenheiten anzupassen. So gibt es eine Versickerung in einem Schotterbett. Dafür aber auf der Hofseite im Süden (wo einmal eine Garage hinkommen soll) keine Begrünung.
+2. Es ist für uns Wünschenswert, Die Bebauungegrenze soweit wie möglich in den Westen zu ziehen, um ggf. Einmal Im Süd/Westen ein 2. Haus bauen zu könne. Anbei ist daher ein Vorschlag für die Fläche und Bebauungsgrenze.

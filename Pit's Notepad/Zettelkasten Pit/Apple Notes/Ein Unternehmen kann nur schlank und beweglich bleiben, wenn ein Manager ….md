@@ -1,0 +1,1 @@
+An Enterprise kann only stay lean and agile if a managers pay-rate is equal or lower as of the practitioners or if he is a co-owner.

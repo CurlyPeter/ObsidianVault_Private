@@ -1,0 +1,1 @@
+[**ISO112103 / LED Aufbaustrahler Mini, silber, IP65, 1x3W, 30°, 230V, warmweiss / 9009377024085, As Elektrobedarf e.K. Elektrogroßhandel Sinzig, 69,89 €**](https://as-elektrobedarf.de/ISO112103-/-LED-Aufbaustrahler-Mini-silber-IP65-1x3W-30-230V-warmweiss-/-9009377024085)

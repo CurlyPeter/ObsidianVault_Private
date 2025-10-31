@@ -1,0 +1,2 @@
+[**Rode NTG3 Shotgun Mic Review / Test**](https://www.youtube.com/watch?v=dTCCqnCYID8)
+[**Rode VideoMic NTG Camera Shotgun Mic Review / Test**](https://www.youtube.com/watch?v=VcBPoLUf-34&list=PLsbiTKk7c_YB8Lk3ovWleVQhxifNRyLve)

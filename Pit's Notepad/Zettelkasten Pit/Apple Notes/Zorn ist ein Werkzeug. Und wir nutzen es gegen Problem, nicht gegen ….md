@@ -1,0 +1,1 @@
+# Zorn ist ein Werkzeug. Und wir nutzen es gegen Problem, nicht gegen Menschen.

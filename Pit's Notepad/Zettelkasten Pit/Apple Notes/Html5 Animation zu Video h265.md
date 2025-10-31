@@ -1,0 +1,1 @@
+[**Convert HTML5 Canvas Sequence to a Video File**](https://stackoverflow.com/questions/19235286/convert-html5-canvas-sequence-to-a-video-file)

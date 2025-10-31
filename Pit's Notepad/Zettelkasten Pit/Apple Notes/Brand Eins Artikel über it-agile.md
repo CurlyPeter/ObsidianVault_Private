@@ -1,0 +1,1 @@
+![](Brand%20Eins%20Artikel%20über%20it-agile.pdf)

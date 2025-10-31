@@ -1,0 +1,1 @@
+Meine These: Es geht eigentlich um unangenehme, riskante und möglicherweise weitreichende Entscheidungen, deren Konsequenzen wir fürchten.

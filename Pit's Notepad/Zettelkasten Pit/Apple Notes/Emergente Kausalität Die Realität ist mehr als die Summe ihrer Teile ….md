@@ -1,0 +1,1 @@
+[**Bewusstsein: Ist die Realität mehr als die Summe ihrer Teile?**](http://www.spektrum.de/news/emergente-kausalitaet-die-realitaet-ist-mehr-als-die-summe-ihrer-teile/1534295)

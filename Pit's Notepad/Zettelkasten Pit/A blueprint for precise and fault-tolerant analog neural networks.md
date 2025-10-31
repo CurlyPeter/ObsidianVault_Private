@@ -1,0 +1,4 @@
+# A blueprint for precise and fault-tolerant analog neural networks
+https://www.nature.com/articles/s41467-024-49324-8 
+
+**A blueprint for precise and fault-tolerant analog neural networks** is a research framework developed by Cansu Demirkiran, Lakshmi Nair, Darius Bunandar, and Ajay Joshi. It describes a method for improving the precision and reliability of analog deep neural networks (DNNs) by using the residue number system (RNS). This approach enables high-accuracy DNN inference and training with low-precision analog hardware, reducing energy consumption and supporting fault tolerance through redundant RNS codes. The blueprint offers a pathway to energy-efficient, scalable, and robust analog AI hardware for advanced applications. For more details, see [[A blueprint for precise and fault-tolerant analog neural networks|the full research article and its methodology]].

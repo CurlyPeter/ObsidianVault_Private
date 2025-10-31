@@ -1,0 +1,1 @@
+[**Oberhitze Gasgrill Asado® 800°**](https://www.gartenartikeldelux.com/oberhitze-gasgrill-asado-800/)

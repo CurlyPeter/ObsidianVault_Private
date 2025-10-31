@@ -1,0 +1,2 @@
+https://teams.microsoft.com/l/meetup-join/19%3ameeting_OWY4YTU0NTctNjAwMS00YzE2LThlODYtYjU0MzhjN2ExZWM3%40thread.v2/0?context=%7b%22Tid%22%3a%22d5ef115e-cee0-442f-8a4c-28e9d56a3c79%22%2c%22Oid%22%3a%22528a0177-dee6-4d67-8bb9-3e79f645d5e2%22%7d
+ eingeladen. Tippen Sie auf den Link, oder fügen Sie ihn in einen Browser ein, um beizutreten.

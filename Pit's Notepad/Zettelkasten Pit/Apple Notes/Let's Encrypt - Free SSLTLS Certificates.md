@@ -1,0 +1,3 @@
+<p style="text-align:center;margin:0"><span style="font-size:40pt;color:#212b55ff;">Let’s Encrypt is a new Certificate Authority:</span>  <span style="font-size:40pt;color:#212b55ff;"><b>It’s</b></span> <span style="font-size:40pt;color:#d46e13ff;"><b>free</b></span><span style="font-size:40pt;color:#212b55ff;"><b>,</b></span> <span style="font-size:40pt;color:#d46e13ff;"><b>automated</b></span><span style="font-size:40pt;color:#212b55ff;"><b>, and</b></span> <span style="font-size:40pt;color:#d46e13ff;"><b>open</b></span><span style="font-size:40pt;color:#212b55ff;">.</span>  <span style="font-size:32pt;color:#212b55ff;">In Public Beta</span>
+</p>
+<span style="color:#6e6e6eff;"><b>FROM OUR BLOG</b></span>

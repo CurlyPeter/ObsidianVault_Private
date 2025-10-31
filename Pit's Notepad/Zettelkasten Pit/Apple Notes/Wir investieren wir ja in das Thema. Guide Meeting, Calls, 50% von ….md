@@ -1,0 +1,1 @@
+Es tut mir leid für alle Personen, die mit den gesetzten Prioritäten nichts anfangen können. Aber ich kann es uns und mir nicht antuen, dass wir noch mehr mehr den Fokus verlieren.

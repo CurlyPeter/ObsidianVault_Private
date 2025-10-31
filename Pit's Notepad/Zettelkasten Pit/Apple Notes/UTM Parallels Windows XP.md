@@ -1,0 +1,1 @@
+[**Convert VMs from VMware/Parallels to UTM · Issue #4927 · utmapp/UTM**](https://github.com/utmapp/UTM/issues/4927)

@@ -1,0 +1,1 @@
+[**deuter Aircontact Core 50+10 | Trekkingrucksack**](https://www.deuter.com/de-de/shop/rucksacke/p611999-trekkingrucksack-aircontact-core-50-10)

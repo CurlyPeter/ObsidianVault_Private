@@ -1,0 +1,1 @@
+Finanzielle Gegenüberstellung Management Dynamic vs. pits 1 enterprise axiom

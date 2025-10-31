@@ -1,0 +1,2 @@
+[**STIHL Akku-Motorsäge MSA 120 C-B mit Akku AK 20 und Ladegerät AL 101**](https://www.motorland-markenshop.de/de-DE/Akku-Motorsaege/STIHL-MSA-120-C-B-mit-Akku-AK-20-und-Ladegeraet-AL-101)
+[**MSA 120 C-B mit Akku AK 20 und Ladegerät AL101**](https://www.motorland-markenshop.de/epages/ST_DE.sf/?ObjectPath=/Shops/ST_DE/Products/58980&gclid=Cj0KCQjw9IX4BRCcARIsAOD2OB2V1dyqlX_y2aYNfs1x7o7G3709w8WZo-Ek4fWRfkxu9mxau5zFaHwaAnxNEALw_wcB)

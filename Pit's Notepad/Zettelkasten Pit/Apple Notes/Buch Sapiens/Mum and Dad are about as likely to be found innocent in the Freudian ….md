@@ -1,0 +1,3 @@
+There is a positive feedback loop between all these four factors. The threat of nuclear holocaust fosters pacifism; when pacifism spreads, war recedes and trade flourishes; and trade increases both the profits of peace and the costs of war.
+
+When we try to guess or imagine how happy other people are now, or how people in the past were, we inevitably imagine ourselves in their shoes. But that won’t work because it pastes our expectations on to the material conditions of others.

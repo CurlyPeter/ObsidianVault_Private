@@ -1,0 +1,11 @@
+- Essenskarte als PDF erstellen und auch Raumanbieter ausdrucken lassen oder noch besser gleich Umfrage vor dem Kurs
+- Keine Drucke 
+- Trainer Marker Big-One leer
+- Fr bis 8:30 - 16:30, da viele zum WE reisen (Trainer auch)
+	- Ggf. Do bis 17:30
+- Mittagessen sehr lang
+- Zeit ist zu kostbar für Feedback-Formular. 
+	- Für Feedback Semi-Automatisch nach dem Kurs verschicken
+	- SA Datenschutzabfrage bei Anmeldung an MDST
+	- Email-Korrektur zwischen 2 Kurstagen
+- Statt Feedback TN zum kommentieren in Sozialen Medien animieren (z.B. Like oder Kommentar)

@@ -1,0 +1,1 @@
+https://www.seiseralm.it/de/aktivurlaub/winterurlaub/langlaufen/geoeffnete-loipen.html#cat=Langlauf&filter=r-fullyTranslatedLangus-,r-openState-,sb-sortedBy-0&zc=11,11.56242,46.54422

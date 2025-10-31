@@ -1,0 +1,1 @@
+![](Vorab-Informationen%20zu%20Ihrem%20Training.pdf)

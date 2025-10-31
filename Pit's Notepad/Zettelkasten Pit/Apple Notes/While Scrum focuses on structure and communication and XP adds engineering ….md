@@ -1,0 +1,1 @@
+[**Lean from the Trenches: Managing Large-Scale Projects with Kanban (English Edition)**](http://amzn.eu/5KKIYWt)

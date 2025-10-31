@@ -1,0 +1,1 @@
+globale_optimierung_b.jpg

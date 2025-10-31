@@ -1,0 +1,1 @@
+[**Sonnensegel Mast Höhenverstellbar Edelstahl Ø 70x3mm**](https://www.sonnensegel-guru.de/sonnensegel-mast-hoehenverstellbar-70x3mm_848_3823?ReferrerID=7&gad_source=1&gclid=CjwKCAjwrIixBhBbEiwACEqDJVMAN3cwIpRtNPTSDOlQ88INwPxcaZ0C6s9Un3dnZ0bFHaWrhynOBBoCpsoQAvD_BwE)

@@ -1,0 +1,1 @@
+# Artikel zu Pit‘s 1st law for an Agile and Lean Organisation

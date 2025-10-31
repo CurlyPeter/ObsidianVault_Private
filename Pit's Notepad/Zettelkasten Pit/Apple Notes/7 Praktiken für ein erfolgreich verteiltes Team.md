@@ -1,0 +1,1 @@
+7 Gründe warum proxy POS keinen Mehrwert liefern.

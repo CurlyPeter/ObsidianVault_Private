@@ -1,0 +1,18 @@
+- [x] Marion
+- [ ] Susanne
+- [ ] Anita
+- [ ] Bärbel
+- [ ] Irene
+- [x] Mathis r
+- [x] Andy wolf
+- [x] Jochen d
+- [x] Klaus e
+- [x] Holger Schott
+- [ ] Stefen
+- [ ] Mathias Bonn
+- [ ] Holger Schleicher
+- [x] Swen
+- [x] Niki
+- [x] Vater Klaus
+- [x] Steffi
+- [x] Seb

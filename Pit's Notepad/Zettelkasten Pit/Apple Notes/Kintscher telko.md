@@ -1,0 +1,1 @@
+<span style="color:#000ff;">Wenn ich mein Kundenstamm verkaufe, dann kann ich doch auch in Investor. In die ag absetzen?</span>

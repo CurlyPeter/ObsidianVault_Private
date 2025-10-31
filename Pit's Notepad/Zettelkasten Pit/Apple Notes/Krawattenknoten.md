@@ -1,0 +1,1 @@
+[**Four-in-Hand**](https://de.wikipedia.org/wiki/Four-in-Hand)

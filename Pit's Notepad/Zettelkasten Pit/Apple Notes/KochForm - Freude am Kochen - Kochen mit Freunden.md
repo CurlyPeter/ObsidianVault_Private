@@ -1,0 +1,2 @@
+[**KochForm - Freude am Kochen - Kochen mit Freunden**](https://www.kochform.de/Bayreuther-Kaffeemaschine-von-Porzellanfabrik-Walkuere.htm)
+[**KochForm - Freude am Kochen - Kochen mit Freunden**](https://m.kochform.de/Bayreuther-Kaffeemaschine-von-Porzellanfabrik-Walkuere.htm?affiliate=GoogleShopping&av=11574577&gclid=Cj0KCQjw1bqZBhDXARIsANTjCPJb3NA1y3hRNO-Y3grMUgqMNQB2G9Iog9AVvp4E6wGd5YpZ2eA5-zsaAsbREALw_wcB)

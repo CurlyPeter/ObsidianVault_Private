@@ -1,0 +1,1 @@
+zurechtkommen, schaffen, einteilen, verwalten, führen. Im Bezug auf die Arbeit bedeute das u.a.: Planung, durchführen und kontrollieren der Arbeit. Ein alternativer Begriff zu _selbst-managet_ ist _selbst-organisieren_

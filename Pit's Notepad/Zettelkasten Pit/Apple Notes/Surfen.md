@@ -1,0 +1,2 @@
+[**Die 6 häufigsten Anfänger-Fehler beim Surfen Lernen – und wie du sie vermeidest!**](https://www.freshsurf.de/die-6-haufigsten-anfanger-fehler-beim-surfen-lernen/)
+[**BIC 7`3 Mini Malibu - Wellenreitshop.de Hamburg**](https://www.wellenreitshop.de/bic-7-3-mini-malibu-50999.html?___SID=U)

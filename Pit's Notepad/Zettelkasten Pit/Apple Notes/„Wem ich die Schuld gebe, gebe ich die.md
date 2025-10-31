@@ -1,0 +1,2 @@
+Macht."
+(Viktor E. Frankl)

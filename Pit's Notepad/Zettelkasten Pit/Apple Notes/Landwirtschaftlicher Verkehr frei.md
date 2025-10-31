@@ -1,0 +1,1 @@
+In anderen Rechtsprechungen wird davon gesprochen, dass "das Befahren dem Zweck der Bewirtschaftung im Sinne landwirtschaftlicher Erzeugung tierischer oder pflanzlicher Art dienen muss". Auf das Fahrtziel kommt es nicht an. Der landwirtschaftliche Verkehr darf die sonst gesperrte Straße also auch zur bloßen Durchfahrt benutzen (Ce NZV 90 441).

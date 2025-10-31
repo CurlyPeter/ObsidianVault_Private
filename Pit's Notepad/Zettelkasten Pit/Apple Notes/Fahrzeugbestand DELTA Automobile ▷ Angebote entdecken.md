@@ -1,0 +1,1 @@
+[**Fahrzeugbestand DELTA Automobile ▷ Angebote entdecken**](https://www.delta-automobile.com/angebote/Hyundai/Hyundai-IONIQ-5-EV-77-4-KW-DYNAMIQ-Navi/62dbc4e1fc770d558d0135a1)

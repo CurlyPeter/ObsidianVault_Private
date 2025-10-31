@@ -1,0 +1,3 @@
+- <span style="color:#000ff;">Zunahme der Komplexität ist nicht linear</span>
+- <span style="color:#000ff;">Exp. Steigend</span>
+- <span style="color:#000ff;">Sprünge wir Sex oder Selbstbewusstsein, kom tech, gentech</span>

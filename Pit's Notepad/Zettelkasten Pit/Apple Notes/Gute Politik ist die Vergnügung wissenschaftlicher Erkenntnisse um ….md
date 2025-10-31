@@ -1,0 +1,1 @@
+# Gute Politik ist die Vergnügung wissenschaftlicher Erkenntnisse um draus in der Gesellschaft akzeptierte Entscheidungen zu machen.

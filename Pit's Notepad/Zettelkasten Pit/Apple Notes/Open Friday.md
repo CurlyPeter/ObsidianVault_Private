@@ -1,0 +1,1 @@
+[**open space conference format at sipgate in Düsseldorf**](http://www.openfriday.org/)

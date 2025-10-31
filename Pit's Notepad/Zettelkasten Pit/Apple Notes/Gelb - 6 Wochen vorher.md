@@ -1,0 +1,7 @@
+- Lila - 24 Jahre vorher
+		- Orange - 3 Wochen vorher
+		- Grün - 7 Jahre vorher
+		- Blau - 5 Tage vorher
+		- Rot - Der Tag danach
+		- Pink - 6 Monate später
+		- Weiß - Der Raubüberfall

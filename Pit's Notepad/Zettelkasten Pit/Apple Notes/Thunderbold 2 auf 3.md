@@ -1,0 +1,1 @@
+[**eGPU. Mehr Grafik Power für deinen Mac.**](http://www.frankjurisch.com/blog/2019/11/5/egpu-mehr-grafik-power-fr-deinen-mac)

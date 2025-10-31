@@ -1,0 +1,1 @@
+Idee Vortag: Mythos, Stories Homo sapiens mit Kultur Model verknüpfen. Warum Menschen einen Kultur haben und ändern können zur Lebzeiten. Hunde können das nicht. Warum ist auch ein Mythos

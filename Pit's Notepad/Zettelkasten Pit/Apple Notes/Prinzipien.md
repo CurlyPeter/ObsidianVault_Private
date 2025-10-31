@@ -1,0 +1,1 @@
+<span style="color:#000ff;">Prinzipien sind wie die Grundfarben. Für eine gutes Bild kommt es auf die richtigen Mischungen an. Fehlt eine Grundfarbe ganz, wirkt das Bild recht eintönig.</span>

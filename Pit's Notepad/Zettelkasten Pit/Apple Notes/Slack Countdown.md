@@ -1,0 +1,1 @@
+/slacount_create “Weiter geht’s!” 55 minutes reminder every 10 minute “Noch {mi} Minuten, dann geht es weiter im Plenum!“

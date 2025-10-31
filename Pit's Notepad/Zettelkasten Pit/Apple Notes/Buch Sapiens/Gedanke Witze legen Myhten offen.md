@@ -1,0 +1,1 @@
+Gedanke: Witze legen Myhten offen

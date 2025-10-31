@@ -1,0 +1,1 @@
+Scrum ist in rollen zu handeln, nicht in Hierarchien.

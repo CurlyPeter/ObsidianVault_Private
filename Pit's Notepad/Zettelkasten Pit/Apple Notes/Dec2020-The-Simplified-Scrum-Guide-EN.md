@@ -1,0 +1,1 @@
+[**Dec2020-The-Simplified-Scrum-Guide-EN**](https://simplifiedscrum.org/wp-content/uploads/2020/11/Dec2020-The-Simplified-Scrum-Guide-EN.pdf)

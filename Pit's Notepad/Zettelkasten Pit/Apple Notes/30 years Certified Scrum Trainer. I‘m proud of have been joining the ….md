@@ -1,0 +1,1 @@
+# 30 years Certified Scrum Trainer. I‘m proud of have been joining the CST community together with you guys.

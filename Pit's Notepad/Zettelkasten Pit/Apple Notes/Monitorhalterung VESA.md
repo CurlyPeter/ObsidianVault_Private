@@ -1,0 +1,1 @@
+[**Monitorhalterung bis 36 Zoll ✔ Bildschirm mit VESA**](https://www.monitorhalterung.de/vesa-monitor-halterung.html)

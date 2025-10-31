@@ -1,0 +1,1 @@
+[**Länder mit dem größten BIP pro Kopf 2020**](https://de.statista.com/statistik/daten/studie/166224/umfrage/ranking-der-20-laender-mit-dem-groessten-bruttoinlandsprodukt-pro-kopf/)

@@ -1,0 +1,1 @@
+[**SONOFF Zigbee 3.0 USB Dongle Plus einbinden in IPS**](https://community.symcon.de/t/sonoff-zigbee-3-0-usb-dongle-plus-einbinden-in-ips/128274)

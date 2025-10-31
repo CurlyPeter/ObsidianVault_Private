@@ -1,0 +1,1 @@
+![](holacracy-whitepaper-v4.1__1.pdf)

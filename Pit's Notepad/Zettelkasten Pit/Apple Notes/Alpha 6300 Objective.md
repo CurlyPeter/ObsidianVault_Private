@@ -1,0 +1,1 @@
+[**Sony Alpha 6000 Objektive: Die 6 besten E-Mount-Objektive für 2021**](https://www.sonntagmorgen.com/sony-alpha-6000-objektive/#analog-objektive)

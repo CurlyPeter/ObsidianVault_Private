@@ -1,0 +1,2 @@
+Invite-Link: https://join.slack.com/t/dst-csp/shared_invite/zt-n236dw5z-8PB7G_Kr~xCDnUkSdRkeFg  Channel Link:
+[https://dst-csp.slack.com/app_redirect?channel=[CHANNEL](https://dst-csp.slack.com/app_redirect?channel=%5BCHANNEL) OHNE #]

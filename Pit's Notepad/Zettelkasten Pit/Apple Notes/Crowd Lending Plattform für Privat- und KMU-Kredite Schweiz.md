@@ -1,0 +1,1 @@
+[**Crowd Lending Plattform für Privat- und KMU-Kredite Schweiz**](https://www.cashare.ch/de/)

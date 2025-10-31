@@ -1,0 +1,1 @@
+<span style="color:#000ff;">Today i leaned my deepest leasen. If you like change the world you need to forgot your ego. This hurts.</span>

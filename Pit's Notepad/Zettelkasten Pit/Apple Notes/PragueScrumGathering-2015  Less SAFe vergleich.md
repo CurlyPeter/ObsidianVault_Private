@@ -1,0 +1,1 @@
+![](PragueScrumGathering-2015.pdf)

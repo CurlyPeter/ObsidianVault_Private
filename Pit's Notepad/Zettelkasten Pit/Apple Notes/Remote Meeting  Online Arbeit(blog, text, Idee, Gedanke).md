@@ -1,0 +1,7 @@
+- Problem: Kamera an
+	- Problem ist Kultur und Angst / Unsicherheit
+	- Kann nur durch Erfahrung erreicht werden. Dazu eine erzwungenes Verwhalten notwendig
+	- Deswegen wurden Video-Calls nie populär
+- Warum soll ich als SM nicht darauf bestehen, dass die Kameras an sind
+	- Erwartung für Remote Arbeit sind nicht geklärt 
+	- Nicht im Arbeitsvertrag wie z.B.: Arbeitsort ist

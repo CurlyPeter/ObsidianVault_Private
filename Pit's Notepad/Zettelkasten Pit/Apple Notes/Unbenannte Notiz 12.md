@@ -1,0 +1,1 @@
+<span style="color:#000ff;">Teilnehmer der #SMWBern erstellen die Produktvision für ihr Community Projekt.</span>

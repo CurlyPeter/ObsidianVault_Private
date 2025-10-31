@@ -1,0 +1,9 @@
+<span style="font-family:Arial-BoldMT;color:#8502ff;"><b>NEUSEELAND</b></span>
+<span style="font-family:Arial-BoldMT;font-size:26pt;color:#191919ff;"><b>Auf goldenen Pfaden</b></span>
+<span style="font-family:Georgia;font-size:15.75pt;color:#191919ff;">Neuseeland stellt 19 Great Rides für Fahrradfahrer vor. Die schönste Route führt durch den rauen Süden des Landes.</span>
+
+<p style="text-align:right;margin:0"><span style="font-family:ArialMT;color:#878787ff;">© Walter Rumsby/Flickr</span>
+
+</p>
+<span style="font-family:ArialMT;font-size:14.625pt;color:#353535ff;">Der Otago Rail Trail ist ein Radweg, der durch das Patagonien Neuseelands führt.</span>
+<span style="font-family:Georgia;font-size:18pt;color:#191919ff;">Es knirscht und prasselt und poltert und klackert. Ein spröder Lärm, der klingt wie eine kaputte Kaffeemühle und zugleich wie die herrliche Begleitmusik zu einem Cowboygefühl nahe der Kitschgrenze. Nur sitze ich nicht auf einem Pferd, sondern auf einem Mountainbike, dessen Reifen sich durch Schotter fressen. Der bedeckt einen schnurgeraden Weg, der irgendwo im Hitzegeflimmer einer alttestamentarischen Landschaft verschwimmt. Sie liegt am Südrand der neuseeländischen Alpen und gibt mir die Illusion, nicht Tourist, sondern Entdecker zu sein. Felskuppen ragen aus golden gebranntem Gras wie gigantische Fingerknöchel. Tote Bäume recken flehend ihre Äste dem ätherblauen Himmel entgegen. Für knapp vier Tage radle ich auf dem</span> <a href="http://www.otagorailtrail.co.nz/" rel="noopener" class="external-link" target="_blank" style="font-family:Georgia;font-size:18pt;color:#dca0dff;"><u>Otago Rail Trail</u></a> <span style="font-family:Georgia;font-size:18pt;color:#191919ff;">ostwärts durch Central Otago, das Patagonien Neuseelands.</span>

@@ -1,0 +1,1 @@
+<span style="color:#000ff;">0,5% Emanuel</span>

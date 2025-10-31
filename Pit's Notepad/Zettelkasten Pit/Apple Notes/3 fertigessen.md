@@ -1,0 +1,11 @@
+3 fertigessen
+- [x] Knäckebrot 
+- [x] Haferflocken
+- [x] Binden
+- [x] Nüsse
+- [x] Schockolade/KitKat
+- [x] Käse oder Wurst
+- [x] Tee
+- [x] Blasenpflaster
+- [x] Äpfel
+- [x] Sonnencreme

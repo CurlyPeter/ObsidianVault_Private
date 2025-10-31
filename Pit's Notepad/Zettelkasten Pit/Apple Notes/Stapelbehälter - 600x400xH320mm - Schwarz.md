@@ -1,0 +1,2 @@
+[**Stapelbehälter - 600x400xH320mm - Schwarz**](https://www.transoplastshop.de/142/stapelbehaelter-600x400xh320mm-schwarz)
+[**Stapelboxen stahl feste konstruktion stapelbehälter 4 geschlossene wände**](https://www.kruizinga.de/stapelboxen-stahl/feste-konstruktion-stapelbehalter/6524gb/gebraucht/98-6524gb)

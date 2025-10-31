@@ -1,0 +1,6 @@
+[**Herr aller Dinge: Roman**](https://www.amazon.de/Herr-aller-Dinge-Andreas-Eschbach-ebook/dp/B005J2PPM2)
+[**Herr aller Dinge: Roman**](https://www.amazon.de/gp/aw/d/B005J2PPM2/ref=tmm_kin_title_0?ie=UTF8&qid=1481974104&sr=1-1)
+[**Drohnenland: Kriminalroman**](https://www.amazon.de/Drohnenland-Kriminalroman-Tom-Hillenbrand/dp/3462046624)
+[**Drohnenland: Kriminalroman**](https://www.amazon.de/Drohnenland-Kriminalroman-Tom-Hillenbrand/dp/3462046624/ref=as_li_ss_il?ie=UTF8&qid=1481976936&sr=8-6&keywords=tom+hillenbrand&linkCode=li1&tag=sflit-21&linkId=ccf771b3b50e479b525ed54a61ce3d0f)
+[**Er war nicht vorbereitet (Die Geburt von Heavy Metal 1)**](https://www.amazon.de/nicht-vorbereitet-Geburt-Heavy-Metal-ebook/dp/B088FVZCXF/ref=zg_bs_420058031_3?_encoding=UTF8&psc=1&refRID=1XPG2KJWFD49NCX41NKF)
+[**Er war nicht vorbereitet (Die Geburt von Heavy Metal 1)**](https://www.amazon.de/nicht-vorbereitet-Geburt-Heavy-Metal-ebook/dp/B088FVZCXF)

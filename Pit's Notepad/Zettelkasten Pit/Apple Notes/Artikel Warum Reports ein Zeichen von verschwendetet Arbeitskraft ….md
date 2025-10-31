@@ -1,0 +1,1 @@
+Artikel: Warum Reports ein Zeichen von verschwendetet Arbeitskraft ist

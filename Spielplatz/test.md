@@ -1,0 +1,1 @@
+https://www.dasscrumteam.com/en/blog/the-good-the-bad-and-the-ugly-about-agile-frameworks

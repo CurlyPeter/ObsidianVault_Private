@@ -1,0 +1,1 @@
+[**How to Create a Public Slack Community with Open Invites**](https://intoli.com/blog/make-a-public-slack-community/)

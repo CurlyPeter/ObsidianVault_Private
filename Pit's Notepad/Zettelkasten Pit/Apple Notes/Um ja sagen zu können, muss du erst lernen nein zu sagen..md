@@ -1,0 +1,1 @@
+Um ja sagen zu können, muss du erst lernen nein zu sagen.

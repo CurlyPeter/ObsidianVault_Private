@@ -1,0 +1,1 @@
+[**Go, See & Do. A Guide to Running a Gemba Sprint**](https://www.infoq.com/articles/guide-gemba-sprint/)

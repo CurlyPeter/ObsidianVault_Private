@@ -1,0 +1,1 @@
+<span style="color:#000ff;">Wann bin ich ein herausragender Change Agent? Sobald ich bereit bin mich für die Veränderung zu opfern. #SMWBern @DasScrumTeam</span>

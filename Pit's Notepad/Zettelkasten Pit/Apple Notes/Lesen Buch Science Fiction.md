@@ -1,0 +1,1 @@
+[**Robert A. Heinlein: Fremder in einer fremden Welt (Taschenbuch) - bei BiNO Bücher in Nieder-Olm**](https://bino-buchhandlung.buchhandlung.de/shop/article/32780688/robert_a_heinlein_fremder_in_einer_fremden_welt.html)

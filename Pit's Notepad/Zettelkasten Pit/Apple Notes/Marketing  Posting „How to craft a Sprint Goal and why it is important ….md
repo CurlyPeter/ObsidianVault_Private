@@ -1,0 +1,1 @@
+# Marketing / Posting „How to craft a Sprint Goal and why it is important“

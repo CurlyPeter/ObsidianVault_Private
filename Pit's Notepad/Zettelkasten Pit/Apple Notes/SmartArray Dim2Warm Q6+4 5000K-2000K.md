@@ -1,0 +1,1 @@
+[**SmartArray Dim2Warm Q6+4 5000K-2000K**](https://www.leds.de/smartarray-dim2warm-q6-4-5000k-2000k-30052.html)

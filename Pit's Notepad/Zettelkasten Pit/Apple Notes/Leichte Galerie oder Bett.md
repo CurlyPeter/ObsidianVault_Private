@@ -1,0 +1,1 @@
+[**Lampadaire Liseuse N°411 von Lampe Gras - DCW éditions PARIS**](https://www.lumitop.com/de/lampen-gras-dcw-editions-paris/958-55140-lampe-gras-411-dcw-editions-paris-stehlampe.html#/574-reflektorfarbe-schwarz/588-rahmenfarbe_-schwarz/591-reflektorform-rund)

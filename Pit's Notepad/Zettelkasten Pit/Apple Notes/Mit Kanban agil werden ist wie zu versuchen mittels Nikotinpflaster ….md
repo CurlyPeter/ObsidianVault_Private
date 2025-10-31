@@ -1,0 +1,1 @@
+# Mit Kanban agil werden ist wie zu versuchen mittels Nikotinpflaster mit dem Rauche aufzuhören. Man bleibt Nikotinabhängig. Scrum ist der Entzug.

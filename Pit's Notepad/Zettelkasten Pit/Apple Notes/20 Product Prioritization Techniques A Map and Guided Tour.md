@@ -1,0 +1,1 @@
+[**20 Product Prioritization Techniques: A Map and Guided Tour | Briefings | career.pm**](https://foldingburritos.com/product-prioritization-techniques/)

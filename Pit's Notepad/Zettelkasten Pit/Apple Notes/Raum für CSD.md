@@ -1,0 +1,1 @@
+<span style="color:#000ff;">Wirtschafts Informatiker Schule Schweiz</span>

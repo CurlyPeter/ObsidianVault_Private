@@ -1,0 +1,1 @@
+agile Management, Agile Projekt Manger, agile ... was jetzt?

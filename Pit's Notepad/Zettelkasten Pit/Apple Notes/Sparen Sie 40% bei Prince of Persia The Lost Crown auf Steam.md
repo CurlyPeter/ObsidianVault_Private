@@ -1,0 +1,2 @@
+[**Sparen Sie 40% bei Prince of Persia The Lost Crown auf Steam**](https://store.steampowered.com/app/2751000/Prince_of_Persia_The_Lost_Crown/)
+[**Prince of Persia®: The Sands of Time bei Steam**](https://store.steampowered.com/app/13600/Prince_of_Persia_The_Sands_of_Time/)

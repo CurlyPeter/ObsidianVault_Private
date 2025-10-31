@@ -1,0 +1,2 @@
+[**Ostsee Hotel Wellnesshotel-Yachthafenresidenz Hohe Düne - Yachthafenresidenz Hohe Düne**](https://m.hohe-duene.de/)
+[**Ostsee Hotel Wellnesshotel-Yachthafenresidenz Hohe Düne**](https://www.hohe-duene.de/)

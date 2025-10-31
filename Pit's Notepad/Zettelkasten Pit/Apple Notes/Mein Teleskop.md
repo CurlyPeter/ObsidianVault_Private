@@ -1,0 +1,1 @@
+[**Skywatcher 120mm (4,75") Refraktor AZ-4**](http://www.zudensternen.de/Teleskop_Skywatcher_120_600_AZ4.html)

@@ -1,0 +1,2 @@
+[**Sessel "FD-164" von Arne Vodder für France & Søn, Dänemark 1960er**](https://furnituregarden.de/products/sessel-fd-164-von-arne-vodder-fur-france-son-danemark-1960er)
+[**Einzelsessel mit Fußhocker, dunkelgrau**](https://www.tchibo.de/products/400124404/einzelsessel-mit-fusshocker-dunkelgrau)

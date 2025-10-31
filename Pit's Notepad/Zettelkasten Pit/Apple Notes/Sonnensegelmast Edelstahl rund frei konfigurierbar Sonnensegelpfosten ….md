@@ -1,0 +1,1 @@
+[**Sonnensegelmast Edelstahl rund frei konfigurierbar Sonnensegelpfosten Stange Neu**](https://www.ebay.de/itm/173989250882)

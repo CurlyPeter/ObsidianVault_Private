@@ -1,0 +1,2 @@
+<p style="text-align:justify;margin:0"><span style="font-family:TrebuchetMS;font-size:16pt;color:#000ff;">Das Ettringer Klettergebiet liegt in den Basaltsteinbrüchen zwischen Mayen, Ettringen und Kottenheim am Rande der Osteifel zu Füßen des Hochsimmer. Es bietet eine Vielzahl an Riss-, Verschneidungs- und Kantenklettereien an griffigem Vulkangestein. Auf der Homepage von Klettern Ettringen finden Sie unter anderem eine Routen- und Boulderdatenbank sowie den Kletterführer Mayen/Ettringen/Kottenheim (Topoführer "Schwarze Säulen" von Alexander S. Friedberger).</span>
+</p>

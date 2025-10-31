@@ -1,0 +1,1 @@
+<span style="color:#000ff;">Das einzige Naturgesetz das die Realität vollständig und widerspruchsfrei erklärt ist die Realität selbst.</span>

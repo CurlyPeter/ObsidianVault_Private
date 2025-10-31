@@ -1,0 +1,1 @@
+[**Black Friday - Cyber Monday Deals**](https://subscription.economist.com/DE/EngCore/EcomNewArticle/RegwallSub)

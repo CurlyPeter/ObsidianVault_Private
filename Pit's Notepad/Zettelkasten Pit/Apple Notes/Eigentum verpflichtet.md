@@ -1,0 +1,3 @@
+- Eigentum verpflichtet
+- Ownership ist Leadership mit Power. Und nicht erst seit Spiderman wissen wir: with great power comes great responsibility
+- Product Owner müssen für das Risiko einstehen können. Nur so werden die Chancen, die in der Produkt-Entwicklung stecken auch angegangen

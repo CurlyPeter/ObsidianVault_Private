@@ -1,0 +1,1 @@
+[**Stühle aus Bibliothek Schulstühle Stapelstühle VS (1 v 10)**](http://www.design-ikonen.net/shop/vintage-schulstuehle/stuhle-aus-bibliothek-schulstuhle-stapelstuhle-vs-1-v-12/)

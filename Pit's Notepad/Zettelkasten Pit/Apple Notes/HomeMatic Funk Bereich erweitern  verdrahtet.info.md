@@ -1,0 +1,1 @@
+[**HomeMatic Funk Bereich erweitern**](https://www.verdrahtet.info/2018/10/27/homematic-funk-bereich-erweitern-so-gehts/)

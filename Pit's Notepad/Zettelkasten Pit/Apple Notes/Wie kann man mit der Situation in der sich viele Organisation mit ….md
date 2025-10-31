@@ -1,0 +1,1 @@
+# Wie kann man mit der Situation in der sich viele Organisation mit SAFe befinden umgehen.

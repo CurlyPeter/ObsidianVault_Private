@@ -1,0 +1,1 @@
+![](Konfigurator%20|%20Volkswagen%20Deutschland%20Der%20Passat%20Variant%20GTE%20Ihr%20Wunschfahrzeug.pdf)

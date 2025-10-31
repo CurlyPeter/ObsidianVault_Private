@@ -1,0 +1,1 @@
+Even if our Tokyo CSM class taught in 2 languages simultaneously, the velocity is quite the same as with my German classes. Prove for learning is more than just giving a lecture?

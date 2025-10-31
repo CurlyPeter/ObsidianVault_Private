@@ -1,0 +1,1 @@
+![](dav_faltblatt_schriesheimer_steinbruch.pdf)

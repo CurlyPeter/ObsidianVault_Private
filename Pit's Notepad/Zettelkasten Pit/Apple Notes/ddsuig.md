@@ -1,0 +1,1 @@
+[**ddsuig**](https://www.stiftung-deutsche-sprache.de/ddsuig.pdf)

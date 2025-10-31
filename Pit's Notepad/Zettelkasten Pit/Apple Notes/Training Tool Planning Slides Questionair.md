@@ -1,0 +1,1 @@
+[**A Better Way to Design Workshops**](https://www.sessionlab.com/)

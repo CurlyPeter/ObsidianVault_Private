@@ -1,0 +1,1 @@
+Guten Tag, wir haben Ihnen Zugangsdaten verschlüsselt per E-Mail gesendet. Mit diesem Kennwort öffnen Sie die PDF-Datei: i2pBbB6TmQetnKg Viele Grüße, Ihre Telekom

@@ -1,0 +1,1 @@
+After doing Scrum now since nearly 15 years my heart is still jumping when see I see a sprint backlog. Found this one somewhere in the streets of London.

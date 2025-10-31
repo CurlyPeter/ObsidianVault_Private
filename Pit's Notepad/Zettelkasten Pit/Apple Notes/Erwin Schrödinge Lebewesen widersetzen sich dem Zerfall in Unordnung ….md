@@ -1,0 +1,1 @@
+Erwin Schrödinge: "**Lebewesen widersetzen sich dem Zerfall in Unordnung**."

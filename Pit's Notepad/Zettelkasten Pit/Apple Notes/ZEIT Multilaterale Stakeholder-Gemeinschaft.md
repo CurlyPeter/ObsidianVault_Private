@@ -1,0 +1,1 @@
+Kaeser: Ja! Bisher hatten wir die Mitarbeiter, die Kunden und die Aktionäre. Die Gesellschaft als wichtiger Stakeholder gewinnt aber immer mehr an Bedeutung, etwa durch soziale Medien, die aktivistische Beteiligung an der Diskussion um unsere Zukunft und unseren Lebensraum

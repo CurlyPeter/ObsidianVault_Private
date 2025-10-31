@@ -1,0 +1,3 @@
+The smartest things are things most nobody has heard of yet, and would likely scoff indignantly at them instead of recognizing their value. And yet the masses tend to believe that their opinions are valid simply because they are popular, which is actually proof that they are irrelevant and obsolete." — Joshua Scott Hotchkin
+
+**https://dungherder.wordpress.com/2021/05/07/the-majority-is-always-wrong/**

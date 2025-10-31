@@ -1,0 +1,4 @@
+Unter der Dunbar-Zahl (englisch Dunbar’s number) versteht man die theoretische kognitive Grenze der Anzahl an Menschen, mit denen eine Einzelperson soziale Beziehungen unterhalten kann. Das Konzept wurde vom Anthropologen Robin Dunbar entwickelt. Die Dunbar-Zahl beschreibt die Anzahl der Personen, von denen jemand die Namen und die wesentlichen Beziehungen untereinander kennen kann.
+
+Dunbar sieht die Anzahl als Eigenschaft bzw. Funktion des Neocortex. Im Allgemeinen betrage die Dunbar-Zahl 150, wobei die Anzahl der Freunde individuell zwischen 100 und 250 schwanken könne.[1] Ob sie auch für sogenannte virtuelle soziale Netzwerke gilt, ist Gegenstand wissenschaftlicher Diskussionen
+[**Dunbar-Zahl**](https://de.m.wikipedia.org/wiki/Dunbar-Zahl)

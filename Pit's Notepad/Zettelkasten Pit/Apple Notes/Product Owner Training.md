@@ -1,0 +1,1 @@
+mit Definition für Produkt und Onwership starten

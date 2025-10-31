@@ -1,0 +1,1 @@
+![](CST%20Recommendation%20Vorlage.xlsx)

@@ -1,0 +1,1 @@
+![](Bestätigung%20Hr.%20Andersson.pdf)

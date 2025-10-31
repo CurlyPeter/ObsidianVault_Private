@@ -1,0 +1,1 @@
+- [ ] <span style="color:#000ff;">Wenn Oberlicht manuell gefahren wird -> Oberlicht West - Ost Automatik aus</span>

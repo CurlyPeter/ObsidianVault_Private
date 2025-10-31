@@ -1,0 +1,3 @@
+Niemals leer
+Vollständig
+Widerspruchsfrei

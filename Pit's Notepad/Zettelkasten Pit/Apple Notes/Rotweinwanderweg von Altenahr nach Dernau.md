@@ -1,0 +1,1 @@
+[**Rotweinwanderweg von Altenahr nach Dernau**](https://www.outdooractive.com/de/route/wanderung/eifel/rotweinwanderweg-von-altenahr-nach-dernau/28919913/#dm=1)

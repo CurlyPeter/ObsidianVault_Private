@@ -1,0 +1,1 @@
+<span style="color:#000ff;">Beeing an agile</span> <span style="font-size:21pt;color:#000ff;">entrepreneur</span>

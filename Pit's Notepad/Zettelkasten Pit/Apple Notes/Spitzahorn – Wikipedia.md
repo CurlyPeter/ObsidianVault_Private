@@ -1,0 +1,1 @@
+[**Spitzahorn**](https://de.m.wikipedia.org/wiki/Spitzahorn)

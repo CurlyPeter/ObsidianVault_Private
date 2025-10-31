@@ -1,0 +1,27 @@
+<span style="color:#000ff;">Sharing link</span>
+
+<span style="color:#000ff;">http://hohabadu.de/?APPLESCRIPT/Tools#quicklookplugin</span>
+<span style="color:#000ff;">Tools</span>
+<span style="color:#000ff;">Dies ist eine Zusammenstellung von Tools, die im Zusammenhang mit AppleScript gut zu nutzen sind, und AppleScript über die hauseigenen Mittel hinausgehend ergänzen.</span>
+   <span style="color:#000ff;">I  N  H  A  L  T</span>
+<span style="color:#000ff;">· Script immer griffbereit</span>
+<span style="color:#000ff;">· Scripts auf Tasten legen</span>
+<span style="color:#000ff;">· Scripts auf Funktionstasten legen (mit Untermenü)</span>
+<span style="color:#000ff;">· Bei Mount: AppleScript</span>
+<span style="color:#000ff;">· Scriptstart per Bluetooth</span>
+<span style="color:#000ff;">· Scriptstart per Context-Menü (1)</span>
+<span style="color:#000ff;">· Scriptstart per Context-Menü (2)</span>
+<span style="color:#000ff;">· Scriptstart per Services-Menü</span>
+<span style="color:#000ff;">· Scriptstart regelmäßig (1) (crontab)</span>
+<span style="color:#000ff;">· Scriptstart regelmäßig (2) (launchd)</span>
+<span style="color:#000ff;">· Scriptstart bei Ruhezustand/Aufwachen/Inaktivität</span>
+<span style="color:#000ff;">· Scriptstart per Screensaver</span>
+<span style="color:#000ff;">· «Flottes» User-Interface</span>
+<span style="color:#000ff;">· Applescripts als Hintergrund-Prozess</span>
+<span style="color:#000ff;">· Texteditor mit AS-Unterstützung</span>
+<span style="color:#000ff;">· UIScripting - Wenn nix mehr geht...</span>
+<span style="color:#000ff;">· UI-Elemente pixelgenau vermessen</span>
+<span style="color:#000ff;">· Code-Fetzen sammeln</span>
+<span style="color:#000ff;">· AppleScript-Schnellansicht mit Leopard (QuickLook)</span>
+<span style="color:#000ff;">· Ohne Umweg PDFs drucken</span>
+<span style="color:#000ff;">· ; [Eure Kommentare zu den Tools]</span>

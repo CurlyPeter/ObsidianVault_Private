@@ -1,0 +1,1 @@
+[**Wacholder pflanzen: Darauf kommt es an!**](https://www.naturadb.de/pflanzen/juniperus-communis/pflanzen/)

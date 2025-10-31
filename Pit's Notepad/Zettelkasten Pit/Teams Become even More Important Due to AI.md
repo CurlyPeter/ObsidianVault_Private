@@ -1,0 +1,2 @@
+
+Teams will not disappear due to LLMs, leaving only pairs. In fact, Teams will become even more crucial. However, they will participate in significantly less programming. Historically, we have reacted to technologies that simplify complexity by developing even more complex Products, Services, or Bureaucracy.

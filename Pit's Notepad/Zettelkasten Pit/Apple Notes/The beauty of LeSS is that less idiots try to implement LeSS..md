@@ -1,0 +1,1 @@
+The beauty of LeSS is that less idiots try to implement LeSS.

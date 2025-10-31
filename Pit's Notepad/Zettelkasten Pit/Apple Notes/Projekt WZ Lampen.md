@@ -1,0 +1,1 @@
+[**Philips MASTER LED E14 Kugel Fadenlampe Klar 5.9W 806lm - 922-927 Dim zuWarm | Höchste Farbwiedergabe - Dimmbar - Ersatz für 60W**](https://www.beleuchtungdirekt.de/philips-master-led-e14-kugel-fadenlampe-klar-5-9w-806lm-922-927-dim-zuwarm-hochste-farbwiedergabe-dimmbar-ersatz-fur-60w-8719514449619)

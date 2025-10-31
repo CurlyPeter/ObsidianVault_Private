@@ -1,0 +1,1 @@
+[**CAMABOX BX4000/BX4700**](https://www.klaiber.de/unsere-produkte/markisen/kassettenmarkisen/camabox-bx4000bx4700/)

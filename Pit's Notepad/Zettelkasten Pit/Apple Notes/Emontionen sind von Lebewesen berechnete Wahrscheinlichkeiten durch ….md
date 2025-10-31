@@ -1,0 +1,2 @@
+Gameification ist das reengineering dieser Algorithmen beim Menschen, um sein Verhalten beeinflussen zu können.
+[**Yuval Harari erzählt die Geschichte von morgen | Sternstunde Philosophie | SRF Kultur**](https://www.youtube.com/watch?v=5fHKK_YFUrw&feature=share)

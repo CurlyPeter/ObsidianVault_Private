@@ -1,0 +1,1 @@
+[**Wanne aus Cortenstahl, Blech, Stärke 2,0 mm**](https://www.feld-eitorf.de/wanne-aus-cortenstahl-blech-staerke-2-0-mm)

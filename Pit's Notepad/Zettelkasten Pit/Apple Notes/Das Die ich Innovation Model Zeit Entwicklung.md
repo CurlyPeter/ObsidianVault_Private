@@ -1,0 +1,1 @@
+[**Kondratjew-Zyklus**](https://de.m.wikipedia.org/wiki/Kondratjew-Zyklus)

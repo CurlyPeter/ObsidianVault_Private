@@ -1,0 +1,1 @@
+[**EMP METAL YOGA : Folge 2 feat. Korn, Trivium, In This Moment und Avenged Sevenfold**](https://www.youtube.com/watch?v=jJAxhwyoBsc&feature=share)

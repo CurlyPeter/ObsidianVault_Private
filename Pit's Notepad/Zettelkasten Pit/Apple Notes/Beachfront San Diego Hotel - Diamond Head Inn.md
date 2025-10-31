@@ -1,0 +1,1 @@
+[**Pacific Beach Ocean View Hotel San Diego**](http://www.diamondheadinn.com/)

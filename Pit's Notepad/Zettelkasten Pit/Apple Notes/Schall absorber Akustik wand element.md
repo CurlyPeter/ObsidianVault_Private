@@ -1,0 +1,1 @@
+[**Soundwave Flo Akustikplatte Offecct Akustikplatten**](https://www.desigano.com/designer-wohnaccessoires/akustikplatten/soundwave-flo-akustikplatte-offecct)

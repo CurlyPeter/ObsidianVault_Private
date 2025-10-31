@@ -1,0 +1,1 @@
+[**02/11 – LESS TALKS: Nicolas M. Chaillan, US Air Force Chief Software Officer On Technology Agility, Scaling and More – Coaching, Consulting, Training**](http://www.keystepstosuccess.com/2020/02/nicolas-m-chaillan-us-air-force-chief-software-officer-on-technology-agility-scaling-and-more/)

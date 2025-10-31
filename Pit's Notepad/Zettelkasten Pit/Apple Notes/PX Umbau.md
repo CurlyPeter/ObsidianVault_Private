@@ -1,0 +1,5 @@
+[**Jonsbo V8 Mini-ITX Gehäuse - grau**](https://www.caseking.de/jonsbo-v8-mini-itx-gehaeuse-grau-gejb-056.html?sPartner=999&wt_mc=googleads.12898413737.122387382140&gclid=Cj0KCQjwkZiFBhD9ARIsAGxFX8DLpN-Nx_Qj2eDZTyNhkGSreBYt3DxK7ku4ocRdtQzc443w0kgsSkUaAgjPEALw_wcB)
+[**A4-SFX V4.1 (Mini-ITX-Gehäuse)**](https://www.galaxus.de/de/s1/product/dan-cases-a4-sfx-v41-mini-itx-gehaeuse-pc-gehaeuse-11156140)
+[**Leo's Least Favourite Phanteks - Evolv Shift 2 Air**](https://www.youtube.com/watch?v=L-k1a432P28)
+[**Leo analyses Cooler Master MasterBox NR200P**](https://www.youtube.com/watch?v=m6d8RvmTTLI)
+[**Building a casual gaming rig / multimedia pc - Jonsbo C2 - RYZEN 2400G - MSI B450M GAMING PLUS**](https://www.youtube.com/watch?v=45_2bdIQu-M)

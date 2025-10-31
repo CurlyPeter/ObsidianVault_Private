@@ -1,0 +1,1 @@
+<span style="color:#000ff;">For those planning to fall in love: first invest in a MVR (Minimal Viable Relationship).</span>

@@ -1,0 +1,1 @@
+![](Schnappschuss_1.jpg)

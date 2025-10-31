@@ -1,0 +1,1 @@
+[**ABSOLUTE SERIES™ LED Linear Module - 99 CRI - 1 ft / 280 mm MCPCB**](https://store.waveformlighting.com/collections/led-linear-modules/products/absolute-series-99-cri-led-linear-module)

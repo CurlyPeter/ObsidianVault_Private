@@ -1,0 +1,3 @@
+[**Homo Deus: A Brief History of Tomorrow (English Edition)**](http://amzn.eu/gzzg6A7)
+Many neo-liberal economists and political scientists argue that it is best to leave all the important decisions in the hands of the free market. They thereby give politicians the perfect excuse for inaction and ignorance, which are reinterpreted as profound wisdom.
+[**Homo Deus: A Brief History of Tomorrow (English Edition)**](http://amzn.eu/0Zq6KON)

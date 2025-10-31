@@ -1,0 +1,11 @@
+- Video in Full Screen
+- Video Chapter
+- neus Video 
+- Videobox große und Rahme
+- Buttons auf der unter Teaser bei Gräßenänderung Fenster passt nicht
+- SEO für Video / Transcript 
+- Verlinkungen auf den type Seiten ASCM und 
+- Teilnehmer stimmen auf Seite verteilen
+- Bilder zu den Testimonials
+- Text prüfen? 
+- Thank you box nach Email Eintragung: Design und freundliche Ansprache was als nächstes passiert.CSP

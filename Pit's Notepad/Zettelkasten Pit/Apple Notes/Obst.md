@@ -1,0 +1,8 @@
+- [x] Hühnerfleisch
+- [x] Karotten
+- [x] Zwieback
+- [x] Wurst
+- [x] Hefe
+- [x] Pilse
+- [x] Käse
+- [x] Nudeln

@@ -1,0 +1,1 @@
+<a href="http://www.grillwendy.de/" rel="noopener" class="external-link" target="_blank" style="color:#00e9ff;"><u>http://www.grillwendy.de/</u></a>

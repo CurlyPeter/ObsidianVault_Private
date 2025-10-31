@@ -1,0 +1,1 @@
+![](Management%203.0.pdf)

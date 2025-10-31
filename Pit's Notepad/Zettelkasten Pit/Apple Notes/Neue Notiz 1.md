@@ -1,0 +1,1 @@
+[**fischer_a1_978-3-642-30271-8_leseprobe**](http://lehrbuch-psychologie.springer.com/sites/default/files/atoms/files/fischer_a1_978-3-642-30271-8_leseprobe.pdf)

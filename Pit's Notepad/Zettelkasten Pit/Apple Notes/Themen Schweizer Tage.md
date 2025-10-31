@@ -1,0 +1,4 @@
+- [ ] Anlage Geld:
+	- [ ] Guthabenzinsen
+	- [ ] Privat oder als Firma
+	- [ ] Mit den Fondsmanagern von Emanuel unterhalten

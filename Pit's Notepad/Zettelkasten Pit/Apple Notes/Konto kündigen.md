@@ -1,0 +1,1 @@
+[**Konto kündigen**](https://www.postfinance.ch/de/support/konten-karten/konto-kuendigen.html)

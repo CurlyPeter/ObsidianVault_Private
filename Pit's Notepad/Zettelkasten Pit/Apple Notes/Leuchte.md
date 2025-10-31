@@ -1,0 +1,1 @@
+[**Zappy Pendelleuchte von Schneid online kaufen**](https://www.connox.de/kategorien/leuchten/pendelleuchten/schneid-zappy-pendelleuchte-eiche.html?itm=139724)

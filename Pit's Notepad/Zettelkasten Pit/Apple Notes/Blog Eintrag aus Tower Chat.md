@@ -1,0 +1,1 @@
+<span style="color:#000ff;">Und die Systemiker so: Suche die positive Absicht des Fehlens der Moderationstaschen für das Gesamtsystem.</span>

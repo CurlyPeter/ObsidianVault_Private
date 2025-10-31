@@ -1,0 +1,1 @@
+<span style="color:#000ff;">https://www.dasscrumteam.com/download/scrumreader_current.pdf</span>

@@ -1,0 +1,1 @@
+https://learnwardleymapping.com/glossary/

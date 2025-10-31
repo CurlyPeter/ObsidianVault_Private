@@ -1,0 +1,2 @@
+[**Self Storage | Self Storage Aktien | finanzen.net**](https://www.finanzen.net/anlagetrends/self-storage)
+[**ETF Pharmaaktien: So bauen Sie Biotech- und Pharma-Werte ins Depot ein**](https://www.test.de/Pharmaaktien-So-bauen-Sie-Biotech-und-Pharma-Werte-ins-Depot-ein-5714885-0/)

@@ -1,0 +1,1 @@
+[**Platane, Platanus hispanica im Pflanzenhandel Eggert online kaufen!**](http://www.eggert-baumschulen.de/products/de/Laubgehoelze/deutsch-botanisch/P/Platanus-hispanica.html)

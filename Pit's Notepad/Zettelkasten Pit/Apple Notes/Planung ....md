@@ -1,0 +1,1 @@
+<span style="color:#000ff;">… ist die Fortsetzung des Zufalls mit den Irrtum</span>

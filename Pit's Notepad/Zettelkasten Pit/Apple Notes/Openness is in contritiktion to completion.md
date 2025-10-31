@@ -1,0 +1,1 @@
+# Openness is in contritiktion to completion

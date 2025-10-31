@@ -1,0 +1,1 @@
+[**Bresser | Messier AR-102L/1350 EXOS-1/EQ4 | Expand Your Horizon**](https://www.bresser.de/Astronomie/Teleskope/Messier-AR-102L-1350-EXOS-1-EQ4.html)

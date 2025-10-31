@@ -1,0 +1,1 @@
+[**Fassung G9 Keramik, für HV-Glühlampen, mit Klammerhalterung M10x1-502042**](https://www.leuchtenbau24.de/de/fassungen-u.-halter/g9-steckfassungen/fassung-g9-keramik-hv-gluehlampen-klammerhalterung-m10x1)

@@ -1,0 +1,1 @@
+[**Birke Multiplex Holzplatte wasserfest**](https://expresszuschnitt.de/Multiplexplatte-Birke-Multiplex)

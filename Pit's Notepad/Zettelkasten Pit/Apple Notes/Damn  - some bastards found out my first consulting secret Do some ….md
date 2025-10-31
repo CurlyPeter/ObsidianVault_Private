@@ -1,0 +1,1 @@
+Damn  - some bastards found out my first consulting secret: Do some magic with some models and tools. Then tell your client, he should kill 80% of all active projects and he will deliver twice as fast. They call it Business Agility. I called it simply Pit’s million dollar rule.

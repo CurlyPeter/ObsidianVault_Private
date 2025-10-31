@@ -1,0 +1,1 @@
+The 3 misconseption why you thinl scrum can’t work for you (and holding you back to dramticlybprove your outcome)

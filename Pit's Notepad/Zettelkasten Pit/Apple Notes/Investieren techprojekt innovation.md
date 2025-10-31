@@ -1,0 +1,1 @@
+[**Forscherteam will Silizium-Akkus industrialisieren**](https://www.energate-messenger.de/news/183138/forscherteam-will-silizium-akkus-industrialisieren)

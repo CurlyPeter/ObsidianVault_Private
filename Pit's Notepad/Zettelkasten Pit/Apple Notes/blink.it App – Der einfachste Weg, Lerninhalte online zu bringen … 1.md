@@ -1,0 +1,1 @@
+[**blink.it Funktionen**](https://www.blink.it/blink-it-app/)

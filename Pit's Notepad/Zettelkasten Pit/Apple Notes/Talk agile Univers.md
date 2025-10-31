@@ -1,0 +1,1 @@
+<span style="color:#000ff;">Metapher Physik Hawkins weltformel Theorie Annahmen Beweise Theorem ...</span>

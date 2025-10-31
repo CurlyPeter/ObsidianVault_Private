@@ -1,0 +1,3 @@
+- [ ] Elektrik Gerda
+- [ ] Surf board
+- [ ] Dachteäger

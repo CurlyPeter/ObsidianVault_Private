@@ -1,0 +1,1 @@
+![](Auzug%20aus%20Versuch%20einer%20...%20Band%203%20Johann%20Goswin%20Widder.pdf)

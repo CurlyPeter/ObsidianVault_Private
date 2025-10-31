@@ -1,0 +1,1 @@
+[**Raymond Kurzweil**](https://de.m.wikipedia.org/wiki/Raymond_Kurzweil)

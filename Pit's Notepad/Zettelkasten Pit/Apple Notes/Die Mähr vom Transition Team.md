@@ -1,0 +1,3 @@
+- Transition Team sind für Manager um Scrum und Agile zu lernen
+- Werden gegründet, damit Management nicht mehr im Weg stehen
+- werden gegründet um scheinbar die Kontrolle über etwas herzustellen, was ohne das Management schon längst umgesetzt worden wäre

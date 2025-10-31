@@ -1,0 +1,1 @@
+<span style="color:#000ff;">Stell dir vor die Funktion wurde vom Team geliefert. Wie überprüfst du, ob die Funktion für dich fertig ist?</span>

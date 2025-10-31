@@ -1,0 +1,1 @@
+![](Some%20tips%20for%20your%20stay.pdf)

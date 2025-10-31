@@ -1,0 +1,1 @@
+[**Ein Design-Klassiker für den Außenbereich - der Hängekorbsessel "Egg"**](https://deavita.com/mobel/ausenbereich-hangekorbsessel-egg.html)

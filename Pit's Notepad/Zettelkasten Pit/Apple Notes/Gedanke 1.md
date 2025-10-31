@@ -1,0 +1,1 @@
+<span style="color:#000ff;">Städte sind Systeme mit extrem hoher dienstleistungs Intensität Switches den Akteuren</span>

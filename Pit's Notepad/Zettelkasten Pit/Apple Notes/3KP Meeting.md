@@ -1,0 +1,14 @@
+- Emendare
+	- Warum wollen wir den Vorschlag:
+		- Wir investieren und wollen noch mehr investieren im Wachstum als Trainingsanbieter - Ziel mehr Gewinn und Umsatz durch mehr Teilnehmer und höhere Preise
+		- Bisherige Anteil denkt kaum die Fixkosten. Wir möchten aber für unser Arbeit auch einen Gewinn: 20% Rendite
+		- Risiko und Chance auf Rendite liegt bei DST
+		- Ein DST Trainer verdient im Moment weniger als ein externer Trainer.
+		- Beim altern Model müssen wir darauf achten, dass die attraktiven Kurse durch einen angestellen Trainer durchgeführt werden, sonst legen wir drauf am Jahresende
+	- Was ist für Heiko und Mentos drin:
+		- Kleine Kurse sind ein Investment für den Aufbau. Davon profitieren die späteren, und ggf. andere Trainer. Für den Trainer soll es dennoch atraktiv sein, dennoch den Aufwand zu tätigen. 
+		- Durch die Progression können sich ein Emendare-Trainer sicher sein, dass sich das DST Team anstrengt attraktive Kurse bereit zu stellen: Durch gute Organisation, Marketing und Verkauf.
+		- Die Entscheidung attraktive Kurse an Emendare-Trainer abzugeben, fällt DST durch die Progression leichter.  
+	- Warum nicht “Wir” sonder “Ihr” und “DST”: Weil die Entscheidung getroffen wurde getrennte Weg zu gehen. Es gibt 2 Untdernehmen und die allerhöchstens als freundliche Mitbewerber zusammen funktionieren können. Für DST ist es so, dass Heiko und Mentos als externen Trainer arbeiten. Das bedeutet, sie können nicht wie eine Mitarbeiter an allen Entscheidungsprozessen teilnehmen noch können sie alles einsehen. Ein Emendare-Trainer kann auch nicht besser gestellt sein, als ein andere externer Trainer.
+
+- Kursplanung

@@ -1,0 +1,1 @@
+[**os-privacy.de**](https://www.os-privacy.de/macos-folderaction-import-photos-5139/)

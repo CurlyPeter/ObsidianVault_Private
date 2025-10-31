@@ -1,0 +1,1 @@
+<span style="color:#000ff;">22% Sponsor, 18% Training,</span>

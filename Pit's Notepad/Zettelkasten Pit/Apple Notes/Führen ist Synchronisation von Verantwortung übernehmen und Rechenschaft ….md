@@ -1,0 +1,1 @@
+Führen ist Synchronisation von Verantwortung übernehmen und Rechenschaft verpflichtet zu sein.

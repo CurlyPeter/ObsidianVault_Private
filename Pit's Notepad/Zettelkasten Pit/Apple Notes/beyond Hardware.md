@@ -1,0 +1,1 @@
+<span style="color:#000ff;">Agile Fluency - Teamreife</span>
